@@ -1,4 +1,4 @@
-# <div align="center">Simon's Cool Site :)</div>
+# Simon's Cool Site :)
 ## Welcome to my site
 #### Welcome to my site. i will post random stuff here. :)
 ## Blog
