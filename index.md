@@ -1,4 +1,3 @@
-# Simon's Cool Site :)
 ## Welcome to my site!
 #### Welcome to my site. i will post random stuff here. :) (The name of the site is a joke lol)
 ## Blog
