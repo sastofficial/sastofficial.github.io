@@ -10,4 +10,4 @@
 [Old Site is archived](https://sastofficial.github.io/pages/blog/oldsite) 11/01-2021
 
 [First Post](https://sastofficial.github.io/pages/blog/first%20post) 11/01-2021
-###### [Get QR code for this site](https://sastofficial.github.io/assets/img/qr/main%20page.png)
+###### [Get QR code for this page](https://sastofficial.github.io/assets/img/qr/main%20page.png)
