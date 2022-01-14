@@ -1,7 +1,7 @@
 ## Welcome to my site!
 #### Welcome to my site. i will post random stuff here. :) (The name of the site is a joke lol)
 ## Blog
-[Updated ELSA Website!](https://sastofficial.github.io/pages/blog/elsa%20site%20update)
+[Updated ELSA Website!](https://sastofficial.github.io/pages/blog/elsa%20site%20update) 14/01-2021
 
 [I got a Jekyll Theme on the site now!](https://sastofficial.github.io/pages/blog/jekyll%20theme) 14/01-2021
 
