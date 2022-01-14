@@ -1,6 +1,8 @@
 ## Welcome to my site!
 #### Welcome to my site. i will post random stuff here. :) (The name of the site is a joke lol)
 ## Blog
+[I got a Jekyll Theme on the site now!](https://sastofficial.github.io/pages/blog/jekyll%20theme) 14/01-2021
+
 [My First Money Withdrawal From My Music!](https://sastofficial.github.io/pages/blog/first%20amuse%20withdrawal) 12/01-2021
 
 [Old Site is archived](https://sastofficial.github.io/pages/blog/oldsite) 11/01-2021
