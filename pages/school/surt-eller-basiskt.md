@@ -28,6 +28,4 @@ Efter:
 ### Bägare 2
 [Bägare 2](#bägare-2) gjorde inte så mycket.
 
-<video width="400" height="700" controls>
-  <source src="../../assets/school/vid/2.mp4" type="video/mp4">
-</video>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E8OwNqJeqII" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
