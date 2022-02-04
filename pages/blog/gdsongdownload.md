@@ -2,7 +2,7 @@
 So i got corona and i was bored so i messed around with get requests and python and made a program that downloads songs from geometry dash.
 It uses the [Geometry Dash Level Browser API](https://gdbrowser.com/api) made by [Colon](https://gdcolon.com/). 
 And the [Requests](https://pypi.org/project/requests/) module for [Python](https://www.python.org/).
-You can download it at [https://sastofficial.github.io/pages/gd-song-downloader](https://sastofficial.github.io/pages/gd-song-downloader)
+You can download it at [https://sastofficial.github.io/pages/gd-song-downloader](https://sastofficial.github.io/pages/gd-song-downloader).
 Anyways i dont have corona anymore and i am at school writing this.
 ### BYE :)
 BTW: Just realized that all the blog posts said 2021 instead of 2022. Im Stupid!
