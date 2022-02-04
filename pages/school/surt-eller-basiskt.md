@@ -17,3 +17,17 @@ Citronsaft
 Vatten + Bakpulver
 ### Bägare 3
 Vatten + Maskindiskmedel
+## Utförande
+### Bägare 1
+[Bägare 1](#bägare-1) bytte färgen till rosa.
+
+Innan:
+![Innan](../../assets/school/img/IMG_20220204_122436.jpg)
+Efter:
+![Efter](../../assets/school/img/efter%201.jpg)
+### Bägare 2
+[Bägare 2](#bägare-2) gjorde inte så mycket.
+
+<video width="400" height="700" controls>
+  <source src="../../assets/school/vid/2.mp4" type="video/mp4">
+</video>
