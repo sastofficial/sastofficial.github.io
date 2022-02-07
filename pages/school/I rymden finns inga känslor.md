@@ -16,8 +16,12 @@ Sam är [Simon's](#simon) bror. Han har en flickvän som heter [Frida](#frida). 
 Frida är [Sam's](#sam) ex flickvän. Hon brukade bo ihop med Sam och [Simon](#simon).  
 Men hon flyttade hem och gjorde slut med Sam för at hon gillade inte Simon. Frida är spelad av [Sofie Hamilton](https://sv.wikipedia.org/wiki/Sofie_Hamilton)<sup>[1](#1)</sub>
 ### Simon's Föräldrar
-[Simon's](#simon) brukade bo med sin mamma och pappa. (fortsätt här) Simons mamma är spelad av [Lotta Tejle](https://sv.wikipedia.org/wiki/Lotta_Tejle) och Simons pappa är spelad av [Ingmar Virta](https://www.imdb.com/name/nm2146477/?ref_=tt_cl_t_11) <sup>[2](#2)</sub>
-
+[Simon's](#simon) brukade bo med sin mamma och pappa. Simons mamma är spelad av [Lotta Tejle](https://sv.wikipedia.org/wiki/Lotta_Tejle) och Simons pappa är spelad av [Ingmar Virta](https://www.imdb.com/name/nm2146477/?ref_=tt_cl_t_11) <sup>[2](#2)</sub>
+### Jennifer
+Jennifer träffade [Simon](#simon) när han var på väg till jobbet. Simon tyckte att hon var en perfekt flickvän till [Sam](#sam) eftersom dem var olika.       
+Jennifer blev vän med Simon. Hon följde han med till jobbet och sen gick på date med Sam. Jennifer är spelad av [Cecilia von der Esch](https://sv.wikipedia.org/wiki/Cecilia_von_der_Esch)<sup>[2](#2)</sub>
+## Miljön
+Filmen är filmad i [Sollefteå](https://sv.wikipedia.org/wiki/Sollefte%C3%A5) och [Sundsvall](https://sv.wikipedia.org/wiki/Sundsvall)<sup>[2](#2)</sub>
 
 ## Källor
 #### 1
