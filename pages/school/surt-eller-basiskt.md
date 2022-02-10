@@ -8,6 +8,8 @@
 [Matrial](#matrial)
 
 [Resultat](#resultat)
+
+[Slutsats](#slutsats)
 ## Syfte
 Syftet är att undersöka om den lila vätskan ändrar färg.
 ## Hypotes
@@ -37,4 +39,5 @@ Efter:
 [![Video](../../assets/school/img/3.mp4.png)](https://sastofficial.github.io/assets/school/3.mp4.html)
 
 ![Efter bägare 3](../../assets/school/img/efter%203.jpg)
-
+## Slutsats
+Färgen ändades för att [Bägare 1](#bägare-1) var surt och bägare [2](#bägare-2) och [3](#bägare-3) var basiskt. Den lila vätskan var neutral.
