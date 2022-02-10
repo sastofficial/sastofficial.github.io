@@ -6,6 +6,8 @@
 [Hypotes](#hypotes)
 
 [Matrial](#matrial)
+
+[Resultat](#resultat)
 ## Syfte
 Syftet är att undersöka om den lila vätskan ändrar färg.
 ## Hypotes
@@ -17,7 +19,7 @@ Citronsaft
 Vatten + Bakpulver
 ### Bägare 3
 Vatten + Maskindiskmedel
-## Utförande
+## Resultat
 ### Bägare 1
 [Bägare 1](#bägare-1) bytte färgen till rosa.
 
@@ -28,4 +30,11 @@ Efter:
 ### Bägare 2
 [Bägare 2](#bägare-2) gjorde inte så mycket.
 
-(lägg en video här senare)
+[![Video](../../assets/school/img/2.mp4.png)](https://sastofficial.github.io/assets/school/2.mp4.html)
+### Bägare 3
+[Bägare 3](#bägare-3) gjorde vattnet grönt.
+
+[![Video](../../assets/school/img/3.mp4.png)](https://sastofficial.github.io/assets/school/3.mp4.html)
+
+![Efter bägare 3](../../assets/school/img/efter%203.jpg)
+
