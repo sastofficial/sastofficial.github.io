@@ -14,7 +14,7 @@ Om flera personer har samma lägsta kort då frågar du vilken symbol dem har.
 3. :diamonds: Ruter
 4. :clubs: Klöver
 ---
-Den som har symbolen med lägsta numret börjar. Om någon har hjärter :hearts:3 så börjar dem altid.
+Den som har symbolen med det lägsta numret börjar. Om någon har hjärter :hearts:3 så börjar dem altid.
 ## Hur man spelar
 När man har börjat spela så kan man inte byta korten ovan på dem andra korten till andra kort.    
 Personen med lägst kort börjar att lägga sitt kort. Sen ska man lägga ett kort som är högre eller har samma nummer.                     
