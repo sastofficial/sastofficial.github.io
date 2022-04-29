@@ -1,5 +1,5 @@
 ## Welcome to my site!
-#### Welcome to my site. i will post random stuff here. :) (The name of the site is a joke lol)
+#### Welcome to my site. i will post random stuff here. :)
 ## Blog
 [I made a song downloader for GD](https://sastofficial.github.io/pages/blog/gdsongdownload) 31/01-2022
 
