@@ -6,4 +6,5 @@ You can download it at [https://sastofficial.github.io/pages/gd-song-downloader]
 Anyways i dont have corona anymore and i am at school writing this.
 ### BYE :)
 BTW: Just realized that all the blog posts said 2021 instead of 2022. Im Stupid!
+#### [Comments](https://github.com/sastofficial/sastofficial.github.io/discussions/34)
 ###### [Get QR code for this page](https://sastofficial.github.io/assets/img/qr/gdsongdownload%20blog%20post%20qr.png)
