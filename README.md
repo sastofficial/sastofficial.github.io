@@ -1,3 +1,2 @@
-# Simon's Cool Site
-### I swear the name is satire
+# Simon's Page
 This is the github repo for my website!
