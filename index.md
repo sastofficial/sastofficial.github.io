@@ -1,6 +1,8 @@
 ## Welcome to my site!
 #### Welcome to my site. i will post random stuff here. :)
 ## Blog
+[Say hello to comments](https://sastofficial.github.io/pages/blog/comments)
+
 [I made a song downloader for GD](https://sastofficial.github.io/pages/blog/gdsongdownload) 31/01-2022
 
 [Updated ELSA Website!](https://sastofficial.github.io/pages/blog/elsa%20site%20update) 14/01-2022
