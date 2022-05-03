@@ -1,7 +1,7 @@
 ## Welcome to my site!
 #### Welcome to my site. i will post random stuff here. :)
 ## Blog
-[Say hello to comments](https://sastofficial.github.io/pages/blog/comments) 03/05-2022
+[Say hello to comments!](https://sastofficial.github.io/pages/blog/comments) 03/05-2022
 
 [I made a song downloader for GD](https://sastofficial.github.io/pages/blog/gdsongdownload) 31/01-2022
 
