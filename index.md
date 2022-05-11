@@ -16,5 +16,5 @@
 [First Post](https://sastofficial.github.io/pages/blog/first%20post) 11/01-2022
 
 ## Webrings
-[<](https://hotlinewebring.club/realsast/previous) [Hotline Webring](https://hotlinewebring.club) [>](https://hotlinewebring.club/realsast/next)
+[←](https://hotlinewebring.club/realsast/previous) [Hotline Webring](https://hotlinewebring.club) [→](https://hotlinewebring.club/realsast/next)
 ###### [Get QR code for this page](https://sastofficial.github.io/assets/img/qr/main%20page.png)
