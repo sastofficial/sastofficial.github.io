@@ -25,6 +25,10 @@
 20. LemKuuja - Cheesecake+
 21. Asambi - Kyu Goes To Dream World
 22. Machine Girl - WLFGRL - June 19th 2022
+23. Daft Punk - Human After All - July 16th 2022
+24. Daft Punk - Alive 2007 - July 16th 2022
+25. Daft Punk - Random Access Memories - July 16th 2022
 
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
+I have also listened to Daft Punk - Discovery by watching Interstella 5555 2 times.
