@@ -1,9 +1,9 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 23
+### Total Albums/EP's: 25
 
 
 
-1. Daft Punk - Alive 1997
+1. Daft Punk - Alive 1997 - March 30th 2021
 2. BoyWithUke - Fever Dreams - June 4th 2021
 3. Breakcorist00 - It's Gonna Be Over Soon
 4. Tyler, The Creator - Igor - September 3rd 2021
