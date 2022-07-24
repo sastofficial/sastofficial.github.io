@@ -14,7 +14,7 @@
 9. マクロスMacross 82-99 - Sailorwave
 10. Candy Claws - Two Airships / Exploder Falls
 11. 100 Gecs - 100 Gecs
-12. Breakcorist00 - Error Code
+12. Breakcorist00 - Error Code - October 21st 2021
 13. Bye2 - 霊体ミミズ (GHOST_WORM) - October 22nd 2021
 14. Justice - †
 15. chris††† - Deep Dark Trench
