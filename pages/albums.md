@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 26
+### Total Albums/EP's: 28
 
 
 
