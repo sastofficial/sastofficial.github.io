@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 28
+### Total Albums/EP's: 29
 
 
 
@@ -29,7 +29,7 @@
 24. Daft Punk - Alive 2007 - July 16th 2022
 25. Daft Punk - Random Access Memories - July 16th 2022
 26. Daft Punk - Human After All (Remixes) - July 22nd 2022
-
+27. Daft Punk - Homework - July 31st 2022
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555 2 times.
