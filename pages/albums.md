@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 30
+### Total Albums/EP's: 33
 
 
 
@@ -31,7 +31,9 @@
 26. Daft Punk - Human After All (Remixes) - July 22nd 2022
 27. Daft Punk - Homework - July 31st 2022
 28. Camellia - Tera I/O - November 5th 2022
-
+29. Leroy - Dariacore - February 20th 2023
+30. Leroy - Dariacore 2: Enter Here, Hell to the Left - February 20th 2023
+31. Leroy - Dariacore 3... At least I think that's what it's called? - February 20th 2023
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555 2 times.
