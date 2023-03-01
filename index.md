@@ -17,4 +17,12 @@
 
 ## Webrings
 [←](https://hotlinewebring.club/realsast/previous) [Hotline Webring](https://hotlinewebring.club) [→](https://hotlinewebring.club/realsast/next)
+  
+  <font size="-1">
+    Proud member of <a href="//webring.theoldnet.com/"><b>TheOldNet</b></a> webring! Check some other cool websites!<br>
+    [<a href="//webring.theoldnet.com/member/5b9d2e29637bdf14667edc288f471a78/previous/navigate">Previous site</a>] -
+    [<a href="//webring.theoldnet.com/member/5b9d2e29637bdf14667edc288f471a78/random/navigate">Random site</a>] -
+    [<a href="//webring.theoldnet.com/member/5b9d2e29637bdf14667edc288f471a78/next/navigate">Next site</a>]
+  </font>
+  
 ###### [Get QR code for this page](https://sastofficial.github.io/assets/img/qr/main%20page.png)
