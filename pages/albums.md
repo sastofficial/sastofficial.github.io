@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 34
+### Total Albums/EP's: 35
 
 
 
@@ -35,5 +35,8 @@
 30. Leroy - Dariacore 2: Enter Here, Hell to the Left - February 20th 2023
 31. Leroy - Dariacore 3... At least I think that's what it's called? - February 20th 2023
 32. six impala - WFLYTD - March 16th 2023
+33. 100 gecs - 10,000 gecs - March 22nd 2023
+
+
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
