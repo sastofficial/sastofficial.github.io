@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 35
+### Total Albums/EP's: 39
 
 
 
@@ -36,6 +36,10 @@
 31. Leroy - Dariacore 3... At least I think that's what it's called? - February 20th 2023
 32. six impala - WFLYTD - March 16th 2023
 33. 100 gecs - 10,000 gecs - March 22nd 2023
+34. 100 gecs - Boiler Room: 100 gecs in Los Angeles, Mar 5, 2023 (DJ Mix) - March 31st 2023
+35. six impala - RUBBER - March 31st 2023
+36. Death Grips - The Money Store - March 31st 2023
+37. six impala - RUBBER ALT - March 31st/April 1st 2023
 
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
