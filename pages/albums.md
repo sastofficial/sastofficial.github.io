@@ -46,7 +46,7 @@
 41. Tyler, The Creator - Goblin (Deluxe Edition) - April 1st 2023
 42. Toby Fox - UNDERTALE Soundtrack - April 1st 2023
 43. underscores - fishmonger - April 1st 2023
-44. six impala - WFLYTD NIGHTCORE
+44. six impala - WFLYTD NIGHTCORE - April 1st 2023
 
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
