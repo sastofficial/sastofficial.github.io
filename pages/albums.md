@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 39
+### Total Albums/EP's: 46
 
 
 
@@ -40,6 +40,13 @@
 35. six impala - RUBBER - March 31st 2023
 36. Death Grips - The Money Store - March 31st 2023
 37. six impala - RUBBER ALT - March 31st/April 1st 2023
+38. Daft Punk - Daft Club - April 1st 2023
+39. Tyler, The Creator - Flower Boy - April 1st 2023
+40. Daft Punk - Homework (Remixes) - April 1st 2023
+41. Tyler, The Creator - Goblin (Deluxe Edition) - April 1st 2023
+42. Toby Fox - UNDERTALE Soundtrack - April 1st 2023
+43. underscores - fishmonger - April 1st 2023
+44. six impala - WFLYTD NIGHTCORE
 
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
