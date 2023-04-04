@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 46
+### Total Albums/EP's: 50
 
 
 
@@ -47,7 +47,10 @@
 42. Toby Fox - UNDERTALE Soundtrack - April 1st 2023
 43. underscores - fishmonger - April 1st 2023
 44. six impala - WFLYTD NIGHTCORE - April 1st 2023
-
+45. underscores - skin purifyng treatment - April 4th 2023
+46. underscores - boneyard aka fearmonger - April 4th 2023
+47. Jane Remover - teen week - April 4th 2023
+48. LoveJoy - "Are you alright?" - April 4th 2023
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
