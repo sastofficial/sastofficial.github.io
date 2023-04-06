@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 50
+### Total Albums/EP's: 55
 
 
 
@@ -51,6 +51,11 @@
 46. underscores - boneyard aka fearmonger - April 4th 2023
 47. Jane Remover - teen week - April 4th 2023
 48. LoveJoy - "Are you alright?" - April 4th 2023
+49. Jane Remover - frailty - April 6th 2023
+50. KaTT - ambient product 1 - April 6th 2023
+51. KaTT - ambient products 2 - April 6th 2023
+52. KaTT - S//////AM3 - April 6th 2023
+53. KaTT, Ando & Sleepycatt - Tamagotchis Remix Album - April 6th 2023
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
