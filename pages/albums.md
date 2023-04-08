@@ -60,7 +60,7 @@
 55. Tyler, The Creator - Live At Splash - April 7th 2023
 56. C418 - Minecraft - Volume Alpha - April 7th 2023
 57. Lena Raine - Minecraft: Nether Update (Original Game Soundtrack) - April 7th 2023
-58. C418 - Minecraft - Volumr Beta - April 8th 2023
+58. C418 - Minecraft - Volume Beta - April 8th 2023
 59. AJ DiSpirito - Murder Drones Mini Album (Original Pilot Soundtrack) - April 8th 2023
 60. AJ DiSpirito - Murder Drones Volume 1 (Original Webseries Soundtrack) - April 8th 2023
 61. Lena Raine & Kumi Tanioka - Minecraft: Caves & Cliffs (Original Game Soundtrack) - April 8th 2023
