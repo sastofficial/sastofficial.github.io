@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 63
+### Total Albums/EP's: 64
 
 
 
@@ -64,6 +64,7 @@
 59. AJ DiSpirito - Murder Drones Mini Album (Original Pilot Soundtrack) - April 8th 2023
 60. AJ DiSpirito - Murder Drones Volume 1 (Original Webseries Soundtrack) - April 8th 2023
 61. Lena Raine & Kumi Tanioka - Minecraft: Caves & Cliffs (Original Game Soundtrack) - April 8th 2023
+62. Lena Raine & Samuel Åberg - Minecraft: Wild Update (Original Game Soundtrack) - April 8th 2023
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
