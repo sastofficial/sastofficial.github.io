@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 55
+### Total Albums/EP's: 63
 
 
 
@@ -56,6 +56,14 @@
 51. KaTT - ambient products 2 - April 6th 2023
 52. KaTT - S//////AM3 - April 6th 2023
 53. KaTT, Ando & Sleepycatt - Tamagotchis Remix Album - April 6th 2023
+54. Tyler, The Creator - Wolf - April 7th 2023
+55. Tyler, The Creator - Live At Splash - April 7th 2023
+56. C418 - Minecraft - Volume Alpha - April 7th 2023
+57. Lena Raine - Minecraft: Nether Update (Original Game Soundtrack) - April 7th 2023
+58. C418 - Minecraft - Volumr Beta - April 8th 2023
+59. AJ DiSpirito - Murder Drones Mini Album (Original Pilot Soundtrack) - April 8th 2023
+60. AJ DiSpirito - Murder Drones Volume 1 (Original Webseries Soundtrack) - April 8th 2023
+61. Lena Raine & Kumi Tanioka - Minecraft: Caves & Cliffs (Original Game Soundtrack) - April 8th 2023
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
