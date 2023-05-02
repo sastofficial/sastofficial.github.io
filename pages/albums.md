@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 67
+### Total Albums/EP's: 69
 
 
 
@@ -67,6 +67,8 @@
 62. Lena Raine & Samuel Åberg - Minecraft: Wild Update (Original Game Soundtrack) - April 8th 2023
 63. umru - comfort noise - April 8th 2023
 64. umru - comfort noise (Music Inspired by the Motion Picture) - April 8th 2023
+65. xaev - berdlycore chapter 1 - May 2nd 2023
+66. gingus - giratinightcore: yellow - May 2nd 2023
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
