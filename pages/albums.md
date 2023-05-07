@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 72
+### Total Albums/EP's: 74
 
 
 
@@ -72,6 +72,8 @@
 67. xaev - berdlycore chapter 2 - May 3rd 2023
 68. xaev - berdlycore chapter zero - May 3rd 2023
 69. xaev - berdlycore chapter 3 - May 6th 2023
+70. gingus - giratinightcore: silver - May 7th 2023
+71. gingus - giratinightcore: emerald - May 7th 2023
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
