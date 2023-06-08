@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 77
+### Total Albums/EP's: 78
 
 
 
@@ -77,6 +77,7 @@
 72. Dario D'Attis - Sunshine People EP - May 11th 2023
 73. Camellia - Blackmagik Blazing - May 18th 2023
 74. Nutuner - The Mix Album - May 18th 2023
+75. breakcorist00 - From One Building to Another - June 8th 2023
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
