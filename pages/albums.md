@@ -78,6 +78,8 @@
 73. Camellia - Blackmagik Blazing - May 18th 2023
 74. Nutuner - The Mix Album - May 18th 2023
 75. breakcorist00 - From One Building to Another - June 8th 2023
+76. Nutuner - Nz - June 16th 2023
+
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
