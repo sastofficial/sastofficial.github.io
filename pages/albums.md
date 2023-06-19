@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 78
+### Total Albums/EP's: 80
 
 
 
@@ -79,9 +79,8 @@
 74. Nutuner - The Mix Album - May 18th 2023
 75. breakcorist00 - From One Building to Another - June 8th 2023
 76. Nutuner - Nz - June 16th 2023
-
+77. SiIvaGunner - .@GiIvaSunner Whips & Nae Naes on Ellen the Generous - June 19th 2023
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
 I also remember listening to SOPHIE - PRODUCT but i dont know if i ever wrote down when i listened to that,
-I have also listened to 100 gecs - Snake Eyes abunch of times
