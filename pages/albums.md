@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 80
+### Total Albums/EP's: 81
 
 
 
@@ -80,6 +80,7 @@
 75. breakcorist00 - From One Building to Another - June 8th 2023
 76. Nutuner - Nz - June 16th 2023
 77. SiIvaGunner - .@GiIvaSunner Whips & Nae Naes on Ellen the Generous - June 19th 2023
+78 - crafter2011 - minecraft vol. 1 - June 20th 2023
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
