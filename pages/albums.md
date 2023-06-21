@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 84
+### Total Albums/EP's: 85
 
 
 
@@ -84,6 +84,7 @@
 79. Justice - † (Anniversary Edition) - June 20th 2023
 80. lexycat - from flowers - June 21st 2023
 81. breakcorist00 - After Death - June 21st 2023
+82. Vargskelethor - Super Ghostbusters (Deluxe Edition) - June 21st 2023
 
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
