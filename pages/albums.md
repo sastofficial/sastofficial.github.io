@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 83
+### Total Albums/EP's: 84
 
 
 
@@ -82,7 +82,9 @@
 77. SiIvaGunner - .@GiIvaSunner Whips & Nae Naes on Ellen the Generous - June 19th 2023
 78. crafter2011 - minecraft vol. 1 - June 20th 2023
 79. Justice - † (Anniversary Edition) - June 20th 2023
-80. lexycat - from flowers - June 21st 2023    
+80. lexycat - from flowers - June 21st 2023
+81. breakcorist00 - After Death - June 21st 2023
+
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
