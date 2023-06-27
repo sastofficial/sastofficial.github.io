@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 88
+### Total Albums/EP's: 89
 
 
 
@@ -88,6 +88,7 @@
 83. Justice - Audio, Video, Disco. - June 25th 2023
 84. Justice - Woman - June 25th 2023
 85. Justice - Planisphere - June 25th 2023
+86. Justice - Access All Arenas - June 27th 2023
 
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
