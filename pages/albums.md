@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 90
+### Total Albums/EP's: 92
 
 
 
@@ -90,6 +90,8 @@
 85. Justice - Planisphere - June 25th 2023
 86. Justice - Access All Arenas - June 27th 2023
 87. Justice - Woman Worldwide - June 27th 2023
+88. Gaspard Auge - Escapades - July 8th 2023
+89. The Living Tombstone - zero_one - July 8th 2023
 
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
