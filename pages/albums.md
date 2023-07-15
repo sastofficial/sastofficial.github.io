@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 92
+### Total Albums/EP's: 93
 
 
 
@@ -92,6 +92,7 @@
 87. Justice - Woman Worldwide - June 27th 2023
 88. Gaspard Auge - Escapades - July 8th 2023
 89. The Living Tombstone - zero_one - July 8th 2023
+90. Daft Punk - Random Access Memories (10th Anniversary Edition) - July 15th 2023
 
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
