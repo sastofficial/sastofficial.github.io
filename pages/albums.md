@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 95
+### Total Albums/EP's: 98
 
 
 
@@ -95,6 +95,9 @@
 90. Daft Punk - Random Access Memories (10th Anniversary Edition) - July 15th 2023
 91. SiIvaGunner - SGFR Presents: Shovelware from Beyond the Deep! - July 16th 2023
 92. ToiletDash - Super ToiletDash 64™ - July 16th 2023
+93. SOPHIE - OIL OF EVERY PEARL'S UN-INSIDES - July 21st 2023
+94. HOME - Odyssey - July 21st 2023
+95. The Living Tombstone - zero_one:reloaded - July 21st 2023
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
