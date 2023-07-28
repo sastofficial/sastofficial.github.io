@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 99
+### Total Albums/EP's: 100
 
 
 
@@ -99,6 +99,7 @@
 94. HOME - Odyssey - July 21st 2023
 95. The Living Tombstone - zero_one:reloaded - July 21st 2023
 96. leroy - Grave Robbing - July 23rd 2023
+97. Justice - A Cross The Universe - July 28th 2023
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
