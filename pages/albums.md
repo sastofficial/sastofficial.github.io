@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 104
+### Total Albums/EP's: 105
 
 
 
@@ -104,6 +104,7 @@
 99. kets4eki, asteria - RAVE2DEATH - August 4th 2023
 100. Ed Banger Records - ED REC Vol.1 - August 4th 2023
 101. Daft Punk - TRON: Legacy - The Complete Edition (Original Motion Picture Soundtrack) - August 4th 2023
+102. Breakcorist00 - LOOK CAMERA! - August 4th 2023
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
