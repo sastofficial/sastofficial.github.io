@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 101
+### Total Albums/EP's: 102
 
 
 
@@ -101,6 +101,7 @@
 96. leroy - Grave Robbing - July 23rd 2023
 97. Justice - A Cross The Universe - July 28th 2023
 98. EleKtr1X - New Folder EP - July 30th 2023
+99. kets4eki, asteria - RAVE2DEATH - August 4th 2023
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
