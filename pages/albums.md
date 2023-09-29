@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 111
+### Total Albums/EP's: 112
 
 
 
@@ -111,6 +111,7 @@
 106. Mr. Oizo - All Weh - August 12th 2023
 107. GRUNCHSHOT - THE GRUNCH TAPE - August 19th 2023
 108. underscores - Wallsocket - September 22nd 2023
+109. Rob Feather - Nest - September 29th 2023
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
