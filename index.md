@@ -1,6 +1,8 @@
 ## Welcome to my site!
 #### Welcome to my site. i will post random stuff here. :)
 ## Blog
+[Images i found in a school booklet](https://sastofficial.github.io/pages/blog/school-booklet) 04/10-2023
+
 [Say hello to comments!](https://sastofficial.github.io/pages/blog/comments) 03/05-2022
 
 [I made a song downloader for GD](https://sastofficial.github.io/pages/blog/gdsongdownload) 31/01-2022
