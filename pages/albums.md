@@ -108,7 +108,7 @@
 103. SebastiAn - Total - August 8th 2023
 104. Daft Punk - TRON: Legacy Reconfigured - August 8th 2023
 105. Mr. Oizo - Lambs Anger - August 12th 2023
-106. Mr. Oizo - All Weh - August 12th 2023
+106. Mr. Oizo - All Wet - August 12th 2023
 107. GRUNCHSHOT - THE GRUNCH TAPE - August 19th 2023
 108. underscores - Wallsocket - September 22nd 2023
 109. Rob Feather - Nest - September 29th 2023
