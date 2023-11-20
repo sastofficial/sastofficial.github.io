@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 120
+### Total Albums/EP's: 121
 
 
 
@@ -120,6 +120,7 @@
 115. Porter Robinson - Nurture - November 13th 2023
 116. bye2 - Metamorphose - November 14th 2023
 117. Aphex Twin - Richard D. James Album - November 15th 2023
+118. C418 - Branching Out - November 20th 2023
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
