@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 122
+### Total Albums/EP's: 123
 
 
 
@@ -122,6 +122,7 @@
 117. Aphex Twin - Richard D. James Album - November 15th 2023
 118. C418 - Branching Out - November 20th 2023
 119. C418 - Dief - November 21st 2023
+120. C418 - sine - November 21st 2023
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
