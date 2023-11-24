@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 126
+### Total Albums/EP's: 127
 
 
 
@@ -126,6 +126,7 @@
 121. C418 - little things - November 22nd 2023
 122. C418 - zweitonegoismus - November 22nd 2023
 123. C418 - Excursions - November 23rd 2023
+124. C418 - I forgot something, didn't I. - November 24th 2023
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
