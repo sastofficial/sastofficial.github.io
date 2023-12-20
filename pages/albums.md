@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 132
+### Total Albums/EP's: 133
 
 
 
@@ -132,6 +132,8 @@
 127. C418 - life changing moments seem minor in pictures - November 28th 2023
 128. C418 - 72 Minutes of Fame - November 30th 2023
 129. C418 - one - December 4th 2023
+130. C418 Community - Minecraft: Volume Alpha Remixed - December 18th 2023
+131. C418 - Bushes and Marshmellows - December 20th 2023
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
