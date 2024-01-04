@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 134
+### Total Albums/EP's: 135
 
 
 
@@ -135,6 +135,7 @@
 130. C418 Community - Minecraft: Volume Alpha Remixed - December 18th 2023
 131. C418 - Bushes and Marshmellows - December 20th 2023
 132. C418 - the whatever directors cut - January 3rd 2024
+133. C418 - my first songs - January 4th 2024
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
