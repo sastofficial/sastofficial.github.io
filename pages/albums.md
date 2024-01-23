@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 138
+### Total Albums/EP's: 139
 
 
 
@@ -139,6 +139,7 @@
 134. C418 - da - January 4th 2024
 135. C418 Community - Minecraft: Volume Beta Remixed - January 8th 2024
 136. C418 - 2 - January 23rd 2024
+137. C418 - Zombie Dog in Crazyland - January 23rd 2024
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
