@@ -141,6 +141,7 @@
 136. C418 - 2 - January 23rd 2024
 137. C418 - Zombie Dog in Crazyland - January 23rd 2024
 138. C418 - Seven Years of Server Data - January 23rd 2024
+139. tripl3digits - Life is Beautiful, Sometimes - January 28th 2024
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
