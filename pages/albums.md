@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 145
+### Total Albums/EP's: 147
 
 
 
@@ -143,9 +143,11 @@
 138. C418 - Seven Years of Server Data - January 23rd 2024
 139. tripl3digits - Life is Beautiful, Sometimes - January 28th 2024
 140. Jane Remover - Census Designated - January 29th 2024
-141. deadmau5 - > album title goes here < - January 30th 2023
-142. Kron Named Idiot - A Folder of Kron's Music - January 31st 2023
-143. The Caretaker - An empty bliss beyond this World - February 1st 2023
+141. deadmau5 - > album title goes here < - January 30th 2024
+142. Kron Named Idiot - A Folder of Kron's Music - January 31st 2024
+143. The Caretaker - An empty bliss beyond this World - February 1st 2024
+144. Various Artists - HYPERFLIP OVERTURE - February 18th 2024
+145. tdstr - internet brainrot - February 18th 2024
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
