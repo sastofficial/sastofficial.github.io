@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 147
+### Total Albums/EP's: 148
 
 
 
@@ -148,6 +148,7 @@
 143. The Caretaker - An empty bliss beyond this World - February 1st 2024
 144. Various Artists - HYPERFLIP OVERTURE - February 18th 2024
 145. tdstr - internet brainrot - February 18th 2024
+146. Daft Punk - 1997-05-15 - Live @ Rex Club, Paris, France (Bootleg)
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
