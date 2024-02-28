@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 150
+### Total Albums/EP's: 151
 
 
 
@@ -150,6 +150,7 @@
 145. tdstr - internet brainrot - February 18th 2024
 146. Daft Punk - 1997-05-15 - Live @ Rex Club, Paris, France (Bootleg) - February 26th 2024
 147. Daft Punk - Daftendirektour '97 at The Mayan Theater, Los Angeles (Bootleg) - February 27th 2024
+148. Camellia - U.U.F.O. - February 28th 2024
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
