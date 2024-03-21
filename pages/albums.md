@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 153
+### Total Albums/EP's: 154
 
 
 
@@ -153,6 +153,7 @@
 148. Camellia - U.U.F.O. - February 28th 2024
 149. deadmau5 - 4x4=12 (Continuous Mix) - March 19th 2024
 150. deadmau5 - Random Album Title - March 20th 2024
+151. deadmau5 - For Lack Of A Better Name (Mixed Version) - March 21st 2024
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
