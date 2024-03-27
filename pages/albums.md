@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 155
+### Total Albums/EP's: 156
 
 
 
@@ -155,6 +155,7 @@
 150. deadmau5 - Random Album Title - March 20th 2024
 151. deadmau5 - For Lack Of A Better Name (Mixed Version) - March 21st 2024
 152. Kx5 - Kx5 - March 22nd 2024
+153. marshall4 - goombacore: greatest hits (volumes 1-4) - March 27th 2024
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
