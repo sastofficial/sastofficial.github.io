@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 159
+### Total Albums/EP's: 160
 
 
 
@@ -159,6 +159,7 @@
 154. ta1lsd0ll - cursed001 - March 27th 2024
 155. ta1lsd0ll - cursed002 - March 27th 2024
 156. tictacto - WIIPOP - March 27th 2024
+157. deadmau5 - While(1<2) (Mixed Version) -  April 2nd 2024
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
