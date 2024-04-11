@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 160
+### Total Albums/EP's: 161
 
 
 
@@ -23,7 +23,7 @@
 18. Breakcorist00 - Exper - January 31st 2022
 19. Breakcorist00 - Sympathy - March 18th 2022
 20. LemKuuja - Cheesecake+
-21. Asambi - Kyu Goes To Dream World
+21. Asambi - Kyu Goes To Dream World - April 10th 2022
 22. Machine Girl - WLFGRL - June 19th 2022
 23. Daft Punk - Human After All - July 16th 2022
 24. Daft Punk - Alive 2007 - July 16th 2022
@@ -160,6 +160,7 @@
 155. ta1lsd0ll - cursed002 - March 27th 2024
 156. tictacto - WIIPOP - March 27th 2024
 157. deadmau5 - While(1<2) (Mixed Version) -  April 2nd 2024
+158. xaev - trendsurfer - April 11th 2024
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
