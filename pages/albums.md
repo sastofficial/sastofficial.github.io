@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 164
+### Total Albums/EP's: 165
 
 
 
@@ -164,6 +164,7 @@
 159. dashie - Dashiecore, Vol. 1 - April 11th 2024
 160. Astrophysics - HOPE LEFT ME - April 17th 2024
 161. Justice - Hyperdrama - April 26th 2024
+162. pm04034 - janecore - May 13th 2024
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
