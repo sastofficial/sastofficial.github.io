@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 176
+### Total Albums/EP's: 177
 
 
 
@@ -141,41 +141,42 @@
 136. C418 - 2 - January 23rd 2024
 137. C418 - Zombie Dog in Crazyland - January 23rd 2024
 138. C418 - Seven Years of Server Data - January 23rd 2024
-139. tripl3digits - Life is Beautiful, Sometimes - January 28th 2024
-140. Jane Remover - Census Designated - January 29th 2024
-141. deadmau5 - > album title goes here < - January 30th 2024
-142. Kron Named Idiot - A Folder of Kron's Music - January 31st 2024
-143. The Caretaker - An empty bliss beyond this World - February 1st 2024
-144. Various Artists - HYPERFLIP OVERTURE - February 18th 2024
-145. tdstr - internet brainrot - February 18th 2024
-146. Daft Punk - 1997-05-15 - Live @ Rex Club, Paris, France (Bootleg) - February 26th 2024
-147. Daft Punk - Daftendirektour '97 at The Mayan Theater, Los Angeles (Bootleg) - February 27th 2024
-148. Camellia - U.U.F.O. - February 28th 2024
-149. deadmau5 - 4x4=12 (Continuous Mix) - March 19th 2024
-150. deadmau5 - Random Album Title - March 20th 2024
-151. deadmau5 - For Lack Of A Better Name (Mixed Version) - March 21st 2024
-152. Kx5 - Kx5 - March 22nd 2024
-153. marshall4 - goombacore: greatest hits (volumes 1-4) - March 27th 2024
-154. ta1lsd0ll - cursed001 - March 27th 2024
-155. ta1lsd0ll - cursed002 - March 27th 2024
-156. tictacto - WIIPOP - March 27th 2024
-157. deadmau5 - While(1<2) (Mixed Version) -  April 2nd 2024
-158. xaev - trendsurfer - April 11th 2024
-159. dashie - Dashiecore, Vol. 1 - April 11th 2024
-160. Astrophysics - HOPE LEFT ME - April 17th 2024
-161. Justice - Hyperdrama - April 26th 2024
-162. pm04034 - janecore - May 13th 2024
-163. pm04034 - janecore 2: never run with no one - May 14th 2024
-164. pm04034 - janecore 3: thats just what you think - May 15th 2024
-165. TwerkNation28 - #TWERKNATION SEASON ONE!!! - May 17th 2024
-166. TwerkNation28 - #TWERKNATION ##SEASON 2!!! #THEBESTTOEVERDOIT - May 17th 2024
-167. Frost Children - SPIRAL - May 17th 2024
-168. umru - search result - May 17th 2024
-169. TwerkNation28 - #TWERKNATION28 ★★★♫♫♫ #SEASON 3!!!! #BESTTOEVERDOIT - May 17th 2024
-170. dashie - throwaways - May 17th 2024
-171. TwerkNation28 - ##TWERKNATION28 #𝟗𝟗𝐓𝐑𝐀𝐂𝐊𝐒!!!!! #SEASON 4✦✦!!! - May 19th 2024
-172. TwerkNation28 - #𝙏𝙒𝙀𝙍𝙆𝙉𝘼𝙏𝙄𝙊𝙉28 SEASON 5??? #WECANTKEEPDOINGTHIS (#ℂ𝕃𝕆𝕌𝕋) - May 19th 2024
-173. TwerkNation28 - @𝗧𝗪𝗘𝗥𝗞𝗡𝗔𝗧𝗜𝗢𝗡𝟮𝟴 Season 6 #𝗝𝗘𝗥𝗦𝗘𝗬𝗖𝗟𝗨𝗕 🤍❤️ - May 19th 2024
+139. Spring On The Avenue - daria vs. core: it's giving charity! - January 26th
+140. tripl3digits - Life is Beautiful, Sometimes - January 28th 2024
+141. Jane Remover - Census Designated - January 29th 2024
+142. deadmau5 - > album title goes here < - January 30th 2024
+143. Kron Named Idiot - A Folder of Kron's Music - January 31st 2024
+144. The Caretaker - An empty bliss beyond this World - February 1st 2024
+145. Various Artists - HYPERFLIP OVERTURE - February 18th 2024
+146. tdstr - internet brainrot - February 18th 2024
+147. Daft Punk - 1997-05-15 - Live @ Rex Club, Paris, France (Bootleg) - February 26th 2024
+148. Daft Punk - Daftendirektour '97 at The Mayan Theater, Los Angeles (Bootleg) - February 27th 2024
+149. Camellia - U.U.F.O. - February 28th 2024
+150. deadmau5 - 4x4=12 (Continuous Mix) - March 19th 2024
+151. deadmau5 - Random Album Title - March 20th 2024
+152. deadmau5 - For Lack Of A Better Name (Mixed Version) - March 21st 2024
+153. Kx5 - Kx5 - March 22nd 2024
+154. marshall4 - goombacore: greatest hits (volumes 1-4) - March 27th 2024
+155. ta1lsd0ll - cursed001 - March 27th 2024
+156. ta1lsd0ll - cursed002 - March 27th 2024
+157. tictacto - WIIPOP - March 27th 2024
+158. deadmau5 - While(1<2) (Mixed Version) -  April 2nd 2024
+159. xaev - trendsurfer - April 11th 2024
+160. dashie - Dashiecore, Vol. 1 - April 11th 2024
+161. Astrophysics - HOPE LEFT ME - April 17th 2024
+162. Justice - Hyperdrama - April 26th 2024
+163. pm04034 - janecore - May 13th 2024
+164. pm04034 - janecore 2: never run with no one - May 14th 2024
+165. pm04034 - janecore 3: thats just what you think - May 15th 2024
+166. TwerkNation28 - #TWERKNATION SEASON ONE!!! - May 17th 2024
+167. TwerkNation28 - #TWERKNATION ##SEASON 2!!! #THEBESTTOEVERDOIT - May 17th 2024
+168. Frost Children - SPIRAL - May 17th 2024
+169. umru - search result - May 17th 2024
+170. TwerkNation28 - #TWERKNATION28 ★★★♫♫♫ #SEASON 3!!!! #BESTTOEVERDOIT - May 17th 2024
+171. dashie - throwaways - May 17th 2024
+172. TwerkNation28 - ##TWERKNATION28 #𝟗𝟗𝐓𝐑𝐀𝐂𝐊𝐒!!!!! #SEASON 4✦✦!!! - May 19th 2024
+173. TwerkNation28 - #𝙏𝙒𝙀𝙍𝙆𝙉𝘼𝙏𝙄𝙊𝙉28 SEASON 5??? #WECANTKEEPDOINGTHIS (#ℂ𝕃𝕆𝕌𝕋) - May 19th 2024
+174. TwerkNation28 - @𝗧𝗪𝗘𝗥𝗞𝗡𝗔𝗧𝗜𝗢𝗡𝟮𝟴 Season 6 #𝗝𝗘𝗥𝗦𝗘𝗬𝗖𝗟𝗨𝗕 🤍❤️ - May 19th 2024
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
