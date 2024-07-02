@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 180
+### Total Albums/EP's: 181
 
 
 
@@ -180,6 +180,7 @@
 175. juno - the loved ones - June 24th 2024
 176. juno - teeth - June 24th 2024
 177. underscores - Wallsocket (Director's cut) - June 28th 2024
+178. juno - last year alive - July 2nd 2024
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
