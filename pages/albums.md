@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 183
+### Total Albums/EP's: 185
 
 
 
@@ -183,6 +183,8 @@
 178. juno - last year alive - July 2nd 2024
 179. Charli XCX - brat and it’s the same but there’s three more songs so it’s not - July 2nd 2024
 180. Kendrick Lamar - To Pimp a Butterfly - July 2nd 2024
+181. Kendrick Lamar - untitled unmastered. - July 5th 2024
+182. Kendrick Lamar - good kid, m.A.A.d city (Deluxe) - July 5th 2024
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
