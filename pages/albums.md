@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 187
+### Total Albums/EP's: 188
 
 
 
@@ -187,6 +187,7 @@
 182. Kendrick Lamar - good kid, m.A.A.d city (Deluxe) - July 5th 2024
 183. Kendrick Lamar - DAMN. - July 16th 2024
 184. Kendrick Lamar - Mr. Morale & the Big Steppers - July 16th 2024
+185. marshall4 - HOMEOWNER - July 16th 2024
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
