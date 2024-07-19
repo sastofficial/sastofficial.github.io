@@ -188,10 +188,10 @@
 183. Kendrick Lamar - DAMN. - July 16th 2024
 184. Kendrick Lamar - Mr. Morale & the Big Steppers - July 16th 2024
 185. marshall4 - HOMEOWNER - July 16th 2024
-186. SiIvaGunner - MAXIMUM QUALITY ACHIVED - July 17th 2024
+186. SiIvaGunner - MAXIMUM QUALITY ACHIEVED - July 17th 2024
 187. Kendrick Lamar - Section.80 - July 17th 2024
 188. Kendrick Lamar - Black Panther the Album Music From and Inspired By - July 18th 2024
-189. SiIvaGunner - ULTIMATE QUALITY ACHIVED - July 19th 2024
+189. SiIvaGunner - ULTIMATE QUALITY ACHIEVED - July 19th 2024
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
