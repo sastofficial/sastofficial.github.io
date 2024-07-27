@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 194
+### Total Albums/EP's: 196
 
 
 
@@ -194,6 +194,8 @@
 189. SiIvaGunner - ULTIMATE QUALITY ACHIEVED - July 19th 2024
 190. Daft Punk, Ghoulie - Alive 2021: Epilogue - July 19th 2024
 191. Have a Nice Life - Deathconsciousness - July 20th 2024
+192. Porter Robinson - SMILE! :D - July 27th 2024
+193. umru & Friends on BBC Radio 1xtra® - B2BATTLEPASS SEASON①「FW'23」- July 27th 2024
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
