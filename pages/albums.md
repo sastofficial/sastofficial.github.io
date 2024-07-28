@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 198
+### Total Albums/EP's: 199
 
 
 
@@ -198,6 +198,7 @@
 193. umru & Friends on BBC Radio 1xtra® - B2BATTLEPASS SEASON①「FW'23」- July 27th 2024
 194. Syzy - The weight of the world - July 28th 2024
 195. webcage - peer2peer - July 28th 2024
+196. 2hollis - boy - July 28th 2024
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
