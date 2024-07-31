@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 201
+### Total Albums/EP's: 202
 
 
 
@@ -201,6 +201,7 @@
 196. 2hollis - boy - July 28th 2024
 197. DJ Re:Code - ReVertPunk - July 31st 2024
 198. FROMTHEHEART - "things happen, it's okay!" - July 31st 2024
+199. asukagender - asukacore - July 31st 2024
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
