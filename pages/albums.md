@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 203
+### Total Albums/EP's: 204
 
 
 
@@ -203,6 +203,7 @@
 198. FROMTHEHEART - "things happen, it's okay!" - July 31st 2024
 199. asukagender - asukacore - July 31st 2024
 200. Khris YokiTunes - Before Rabbit Girls - July 31st 2024
+201. asukagender - asukacore 2 - July 31st 2024
 
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
