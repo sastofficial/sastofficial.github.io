@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 204
+### Total Albums/EP's: 205
 
 
 
@@ -78,132 +78,133 @@
 73. Camellia - Blackmagik Blazing - May 18th 2023
 74. Nutuner - The Mix Album - May 18th 2023
 75. breakcorist00 - From One Building to Another - June 8th 2023
-76. Nutuner - Nz - June 16th 2023
-77. SiIvaGunner - .@GiIvaSunner Whips & Nae Naes on Ellen the Generous - June 19th 2023
-78. crafter2011 - minecraft vol. 1 - June 20th 2023
-79. Justice - † (Anniversary Edition) - June 20th 2023
-80. lexycat - from flowers - June 21st 2023
-81. breakcorist00 - After Death - June 21st 2023
-82. Vargskelethor - Super Ghostbusters (Deluxe Edition) - June 21st 2023
-83. Justice - Audio, Video, Disco. - June 25th 2023
-84. Justice - Woman - June 25th 2023
-85. Justice - Planisphere - June 25th 2023
-86. Justice - Access All Arenas - June 27th 2023
-87. Justice - Woman Worldwide - June 27th 2023
-88. Gaspard Auge - Escapades - July 8th 2023
-89. The Living Tombstone - zero_one - July 8th 2023
-90. Daft Punk - Random Access Memories (10th Anniversary Edition) - July 15th 2023
-91. SiIvaGunner - SGFR Presents: Shovelware from Beyond the Deep! - July 16th 2023
-92. ToiletDash - Super ToiletDash 64™ - July 16th 2023
-93. SOPHIE - OIL OF EVERY PEARL'S UN-INSIDES - July 21st 2023
-94. HOME - Odyssey - July 21st 2023
-95. The Living Tombstone - zero_one:reloaded - July 21st 2023
-96. leroy - Grave Robbing - July 23rd 2023
-97. Justice - A Cross The Universe - July 28th 2023
-98. EleKtr1X - New Folder EP - July 30th 2023
-99. kets4eki, asteria - RAVE2DEATH - August 4th 2023
-100. Ed Banger Records - ED REC Vol.1 - August 4th 2023
-101. Daft Punk - TRON: Legacy - The Complete Edition (Original Motion Picture Soundtrack) - August 4th 2023
-102. Breakcorist00 - LOOK CAMERA! - August 4th 2023
-103. SebastiAn - Total - August 8th 2023
-104. Daft Punk - TRON: Legacy Reconfigured - August 8th 2023
-105. Mr. Oizo - Lambs Anger - August 12th 2023
-106. Mr. Oizo - All Wet - August 12th 2023
-107. GRUNCHSHOT - THE GRUNCH TAPE - August 19th 2023
-108. underscores - Wallsocket - September 22nd 2023
-109. Rob Feather - Nest - September 29th 2023
-110. C418 - Cookie Clicker - November 2nd 2023
-111. Machine Girl - RePorpoised Phantasies - November 9th 2023
-112. C418 - Mixes - November 11th 2023
-113. C418 - bps - November 11th 2023
-114. C418 - circle - November 11th 2023
-115. Porter Robinson - Nurture - November 13th 2023
-116. bye2 - Metamorphose - November 14th 2023
-117. Aphex Twin - Richard D. James Album - November 15th 2023
-118. C418 - Branching Out - November 20th 2023
-119. C418 - Dief - November 21st 2023
-120. C418 - sine - November 21st 2023
-121. C418 - little things - November 22nd 2023
-122. C418 - zweitonegoismus - November 22nd 2023
-123. C418 - Excursions - November 23rd 2023
-124. C418 - I forgot something, didn't I. - November 24th 2023
-125. C418 - 148 - November 24th 2023
-126. C418 - life changing moments seem minor in pictures - November 28th 2023
-127. C418 - 72 Minutes of Fame - November 30th 2023
-128. C418 - one - December 4th 2023
-129. C418 - 2 years of failure - December 15th 2023
-130. C418 Community - Minecraft: Volume Alpha Remixed - December 18th 2023
-131. C418 - Bushes and Marshmellows - December 20th 2023
-132. C418 - the whatever directors cut - January 3rd 2024
-133. C418 - my first songs - January 4th 2024
-134. C418 - da - January 4th 2024
-135. C418 Community - Minecraft: Volume Beta Remixed - January 8th 2024
-136. C418 - 2 - January 23rd 2024
-137. C418 - Zombie Dog in Crazyland - January 23rd 2024
-138. C418 - Seven Years of Server Data - January 23rd 2024
-139. Spring On The Avenue - daria vs. core: it's giving charity! - January 26th
-140. tripl3digits - Life is Beautiful, Sometimes - January 28th 2024
-141. Jane Remover - Census Designated - January 29th 2024
-142. deadmau5 - > album title goes here < - January 30th 2024
-143. Kron Named Idiot - A Folder of Kron's Music - January 31st 2024
-144. The Caretaker - An empty bliss beyond this World - February 1st 2024
-145. Various Artists - HYPERFLIP OVERTURE - February 18th 2024
-146. tdstr - internet brainrot - February 18th 2024
-147. Daft Punk - 1997-05-15 - Live @ Rex Club, Paris, France (Bootleg) - February 26th 2024
-148. Daft Punk - Daftendirektour '97 at The Mayan Theater, Los Angeles (Bootleg) - February 27th 2024
-149. Camellia - U.U.F.O. - February 28th 2024
-150. deadmau5 - 4x4=12 (Continuous Mix) - March 19th 2024
-151. deadmau5 - Random Album Title - March 20th 2024
-152. deadmau5 - For Lack Of A Better Name (Mixed Version) - March 21st 2024
-153. Kx5 - Kx5 - March 22nd 2024
-154. marshall4 - goombacore: greatest hits (volumes 1-4) - March 27th 2024
-155. ta1lsd0ll - cursed001 - March 27th 2024
-156. ta1lsd0ll - cursed002 - March 27th 2024
-157. tictacto - WIIPOP - March 27th 2024
-158. deadmau5 - While(1<2) (Mixed Version) -  April 2nd 2024
-159. xaev - trendsurfer - April 11th 2024
-160. dashie - Dashiecore, Vol. 1 - April 11th 2024
-161. Astrophysics - HOPE LEFT ME - April 17th 2024
-162. Justice - Hyperdrama - April 26th 2024
-163. pm04034 - janecore - May 13th 2024
-164. pm04034 - janecore 2: never run with no one - May 14th 2024
-165. pm04034 - janecore 3: thats just what you think - May 15th 2024
-166. TwerkNation28 - #TWERKNATION SEASON ONE!!! - May 17th 2024
-167. TwerkNation28 - #TWERKNATION ##SEASON 2!!! #THEBESTTOEVERDOIT - May 17th 2024
-168. Frost Children - SPIRAL - May 17th 2024
-169. umru - search result - May 17th 2024
-170. TwerkNation28 - #TWERKNATION28 ★★★♫♫♫ #SEASON 3!!!! #BESTTOEVERDOIT - May 17th 2024
-171. dashie - throwaways - May 17th 2024
-172. TwerkNation28 - ##TWERKNATION28 #𝟗𝟗𝐓𝐑𝐀𝐂𝐊𝐒!!!!! #SEASON 4✦✦!!! - May 19th 2024
-173. TwerkNation28 - #𝙏𝙒𝙀𝙍𝙆𝙉𝘼𝙏𝙄𝙊𝙉28 SEASON 5??? #WECANTKEEPDOINGTHIS (#ℂ𝕃𝕆𝕌𝕋) - May 19th 2024
-174. TwerkNation28 - @𝗧𝗪𝗘𝗥𝗞𝗡𝗔𝗧𝗜𝗢𝗡𝟮𝟴 Season 6 #𝗝𝗘𝗥𝗦𝗘𝗬𝗖𝗟𝗨𝗕 🤍❤️ - May 19th 2024
-175. juno - the loved ones - June 24th 2024
-176. juno - teeth - June 24th 2024
-177. underscores - Wallsocket (Director's cut) - June 28th 2024
-178. juno - last year alive - July 2nd 2024
-179. Charli XCX - brat and it’s the same but there’s three more songs so it’s not - July 2nd 2024
-180. Kendrick Lamar - To Pimp a Butterfly - July 2nd 2024
-181. Kendrick Lamar - untitled unmastered. - July 5th 2024
-182. Kendrick Lamar - good kid, m.A.A.d city (Deluxe) - July 5th 2024
-183. Kendrick Lamar - DAMN. - July 16th 2024
-184. Kendrick Lamar - Mr. Morale & the Big Steppers - July 16th 2024
-185. marshall4 - HOMEOWNER - July 16th 2024
-186. SiIvaGunner - MAXIMUM QUALITY ACHIEVED - July 17th 2024
-187. Kendrick Lamar - Section.80 - July 17th 2024
-188. Kendrick Lamar - Black Panther the Album Music From and Inspired By - July 18th 2024
-189. SiIvaGunner - ULTIMATE QUALITY ACHIEVED - July 19th 2024
-190. Daft Punk, Ghoulie - Alive 2021: Epilogue - July 19th 2024
-191. Have a Nice Life - Deathconsciousness - July 20th 2024
-192. Porter Robinson - SMILE! :D - July 27th 2024
-193. umru & Friends on BBC Radio 1xtra® - B2BATTLEPASS SEASON①「FW'23」- July 27th 2024
-194. Syzy - The weight of the world - July 28th 2024
-195. webcage - peer2peer - July 28th 2024
-196. 2hollis - boy - July 28th 2024
-197. DJ Re:Code - ReVertPunk - July 31st 2024
-198. FROMTHEHEART - "things happen, it's okay!" - July 31st 2024
-199. asukagender - asukacore - July 31st 2024
-200. Khris YokiTunes - Before Rabbit Girls - July 31st 2024
-201. asukagender - asukacore 2 - July 31st 2024
+76. six impala - EARWAX - June 9th 2023
+77. Nutuner - Nz - June 16th 2023
+78. SiIvaGunner - .@GiIvaSunner Whips & Nae Naes on Ellen the Generous - June 19th 2023
+79. crafter2011 - minecraft vol. 1 - June 20th 2023
+80. Justice - † (Anniversary Edition) - June 20th 2023
+81. lexycat - from flowers - June 21st 2023
+82. breakcorist00 - After Death - June 21st 2023
+83. Vargskelethor - Super Ghostbusters (Deluxe Edition) - June 21st 2023
+84. Justice - Audio, Video, Disco. - June 25th 2023
+85. Justice - Woman - June 25th 2023
+86. Justice - Planisphere - June 25th 2023
+87. Justice - Access All Arenas - June 27th 2023
+88. Justice - Woman Worldwide - June 27th 2023
+89. Gaspard Auge - Escapades - July 8th 2023
+90. The Living Tombstone - zero_one - July 8th 2023
+91. Daft Punk - Random Access Memories (10th Anniversary Edition) - July 15th 2023
+92. SiIvaGunner - SGFR Presents: Shovelware from Beyond the Deep! - July 16th 2023
+93. ToiletDash - Super ToiletDash 64™ - July 16th 2023
+94. SOPHIE - OIL OF EVERY PEARL'S UN-INSIDES - July 21st 2023
+95. HOME - Odyssey - July 21st 2023
+96. The Living Tombstone - zero_one:reloaded - July 21st 2023
+97. leroy - Grave Robbing - July 23rd 2023
+98. Justice - A Cross The Universe - July 28th 2023
+99. EleKtr1X - New Folder EP - July 30th 2023
+100. kets4eki, asteria - RAVE2DEATH - August 4th 2023
+101. Ed Banger Records - ED REC Vol.1 - August 4th 2023
+102. Daft Punk - TRON: Legacy - The Complete Edition (Original Motion Picture Soundtrack) - August 4th 2023
+103. Breakcorist00 - LOOK CAMERA! - August 4th 2023
+104. SebastiAn - Total - August 8th 2023
+105. Daft Punk - TRON: Legacy Reconfigured - August 8th 2023
+106. Mr. Oizo - Lambs Anger - August 12th 2023
+107. Mr. Oizo - All Wet - August 12th 2023
+108. GRUNCHSHOT - THE GRUNCH TAPE - August 19th 2023
+109. underscores - Wallsocket - September 22nd 2023
+110. Rob Feather - Nest - September 29th 2023
+111. C418 - Cookie Clicker - November 2nd 2023
+112. Machine Girl - RePorpoised Phantasies - November 9th 2023
+113. C418 - Mixes - November 11th 2023
+114. C418 - bps - November 11th 2023
+115. C418 - circle - November 11th 2023
+116. Porter Robinson - Nurture - November 13th 2023
+117. bye2 - Metamorphose - November 14th 2023
+118. Aphex Twin - Richard D. James Album - November 15th 2023
+119. C418 - Branching Out - November 20th 2023
+120. C418 - Dief - November 21st 2023
+121. C418 - sine - November 21st 2023
+122. C418 - little things - November 22nd 2023
+123. C418 - zweitonegoismus - November 22nd 2023
+124. C418 - Excursions - November 23rd 2023
+125. C418 - I forgot something, didn't I. - November 24th 2023
+126. C418 - 148 - November 24th 2023
+127. C418 - life changing moments seem minor in pictures - November 28th 2023
+128. C418 - 72 Minutes of Fame - November 30th 2023
+129. C418 - one - December 4th 2023
+130. C418 - 2 years of failure - December 15th 2023
+131. C418 Community - Minecraft: Volume Alpha Remixed - December 18th 2023
+132. C418 - Bushes and Marshmellows - December 20th 2023
+133. C418 - the whatever directors cut - January 3rd 2024
+134. C418 - my first songs - January 4th 2024
+135. C418 - da - January 4th 2024
+136. C418 Community - Minecraft: Volume Beta Remixed - January 8th 2024
+137. C418 - 2 - January 23rd 2024
+138. C418 - Zombie Dog in Crazyland - January 23rd 2024
+139. C418 - Seven Years of Server Data - January 23rd 2024
+140. Spring On The Avenue - daria vs. core: it's giving charity! - January 26th
+141. tripl3digits - Life is Beautiful, Sometimes - January 28th 2024
+142. Jane Remover - Census Designated - January 29th 2024
+143. deadmau5 - > album title goes here < - January 30th 2024
+144. Kron Named Idiot - A Folder of Kron's Music - January 31st 2024
+145. The Caretaker - An empty bliss beyond this World - February 1st 2024
+146. Various Artists - HYPERFLIP OVERTURE - February 18th 2024
+147. tdstr - internet brainrot - February 18th 2024
+148. Daft Punk - 1997-05-15 - Live @ Rex Club, Paris, France (Bootleg) - February 26th 2024
+149. Daft Punk - Daftendirektour '97 at The Mayan Theater, Los Angeles (Bootleg) - February 27th 2024
+150. Camellia - U.U.F.O. - February 28th 2024
+151. deadmau5 - 4x4=12 (Continuous Mix) - March 19th 2024
+152. deadmau5 - Random Album Title - March 20th 2024
+153. deadmau5 - For Lack Of A Better Name (Mixed Version) - March 21st 2024
+154. Kx5 - Kx5 - March 22nd 2024
+155. marshall4 - goombacore: greatest hits (volumes 1-4) - March 27th 2024
+156. ta1lsd0ll - cursed001 - March 27th 2024
+157. ta1lsd0ll - cursed002 - March 27th 2024
+158. tictacto - WIIPOP - March 27th 2024
+159. deadmau5 - While(1<2) (Mixed Version) -  April 2nd 2024
+160. xaev - trendsurfer - April 11th 2024
+161. dashie - Dashiecore, Vol. 1 - April 11th 2024
+162. Astrophysics - HOPE LEFT ME - April 17th 2024
+163. Justice - Hyperdrama - April 26th 2024
+164. pm04034 - janecore - May 13th 2024
+165. pm04034 - janecore 2: never run with no one - May 14th 2024
+166. pm04034 - janecore 3: thats just what you think - May 15th 2024
+167. TwerkNation28 - #TWERKNATION SEASON ONE!!! - May 17th 2024
+168. TwerkNation28 - #TWERKNATION ##SEASON 2!!! #THEBESTTOEVERDOIT - May 17th 2024
+169. Frost Children - SPIRAL - May 17th 2024
+170. umru - search result - May 17th 2024
+171. TwerkNation28 - #TWERKNATION28 ★★★♫♫♫ #SEASON 3!!!! #BESTTOEVERDOIT - May 17th 2024
+172. dashie - throwaways - May 17th 2024
+173. TwerkNation28 - ##TWERKNATION28 #𝟗𝟗𝐓𝐑𝐀𝐂𝐊𝐒!!!!! #SEASON 4✦✦!!! - May 19th 2024
+174. TwerkNation28 - #𝙏𝙒𝙀𝙍𝙆𝙉𝘼𝙏𝙄𝙊𝙉28 SEASON 5??? #WECANTKEEPDOINGTHIS (#ℂ𝕃𝕆𝕌𝕋) - May 19th 2024
+175. TwerkNation28 - @𝗧𝗪𝗘𝗥𝗞𝗡𝗔𝗧𝗜𝗢𝗡𝟮𝟴 Season 6 #𝗝𝗘𝗥𝗦𝗘𝗬𝗖𝗟𝗨𝗕 🤍❤️ - May 19th 2024
+176. juno - the loved ones - June 24th 2024
+177. juno - teeth - June 24th 2024
+178. underscores - Wallsocket (Director's cut) - June 28th 2024
+179. juno - last year alive - July 2nd 2024
+180. Charli XCX - brat and it’s the same but there’s three more songs so it’s not - July 2nd 2024
+181. Kendrick Lamar - To Pimp a Butterfly - July 2nd 2024
+182. Kendrick Lamar - untitled unmastered. - July 5th 2024
+183. Kendrick Lamar - good kid, m.A.A.d city (Deluxe) - July 5th 2024
+184. Kendrick Lamar - DAMN. - July 16th 2024
+185. Kendrick Lamar - Mr. Morale & the Big Steppers - July 16th 2024
+186. marshall4 - HOMEOWNER - July 16th 2024
+187. SiIvaGunner - MAXIMUM QUALITY ACHIEVED - July 17th 2024
+188. Kendrick Lamar - Section.80 - July 17th 2024
+189. Kendrick Lamar - Black Panther the Album Music From and Inspired By - July 18th 2024
+190. SiIvaGunner - ULTIMATE QUALITY ACHIEVED - July 19th 2024
+191. Daft Punk, Ghoulie - Alive 2021: Epilogue - July 19th 2024
+192. Have a Nice Life - Deathconsciousness - July 20th 2024
+193. Porter Robinson - SMILE! :D - July 27th 2024
+194. umru & Friends on BBC Radio 1xtra® - B2BATTLEPASS SEASON①「FW'23」- July 27th 2024
+195. Syzy - The weight of the world - July 28th 2024
+196. webcage - peer2peer - July 28th 2024
+197. 2hollis - boy - July 28th 2024
+198. DJ Re:Code - ReVertPunk - July 31st 2024
+199. FROMTHEHEART - "things happen, it's okay!" - July 31st 2024
+200. asukagender - asukacore - July 31st 2024
+201. Khris YokiTunes - Before Rabbit Girls - July 31st 2024
+202. asukagender - asukacore 2 - July 31st 2024
 
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
