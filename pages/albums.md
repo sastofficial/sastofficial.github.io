@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 205
+### Total Albums/EP's: 207
 
 
 
@@ -205,6 +205,8 @@
 200. asukagender - asukacore - July 31st 2024
 201. Khris YokiTunes - Before Rabbit Girls - July 31st 2024
 202. asukagender - asukacore 2 - July 31st 2024
+203. JPEGMAFIA - I LAY DOWN MY LIFE FOR YOU - August 9th 2024
+204. JPEGMAGIA x Danny Brown - SCARING THE HOES - August 9th 2024
 
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
