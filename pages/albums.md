@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 207
+### Total Albums/EP's: 209
 
 
 
@@ -207,6 +207,8 @@
 202. asukagender - asukacore 2 - July 31st 2024
 203. JPEGMAFIA - I LAY DOWN MY LIFE FOR YOU - August 9th 2024
 204. JPEGMAGIA x Danny Brown - SCARING THE HOES - August 9th 2024
+205. Lena Raine - Celeste (Original Soundtrack) - August 13th 2024
+206. Lena Raine - Celeste B-Sides (Original Game Soundtrack) - August 13th 2024
 
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
