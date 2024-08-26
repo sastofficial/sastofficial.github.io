@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 211
+### Total Albums/EP's: 212
 
 
 
@@ -211,6 +211,7 @@
 206. Lena Raine - Celeste B-Sides (Original Game Soundtrack) - August 13th 2024
 207. lanelanelane - Bluefaith - August 14th 2024
 208. Porter Robinson - Worlds - August 15th 2024
+209. Kendrick Lamar - Live @ Austik City Limits (Bootleg) - August 26th 2024
 
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
