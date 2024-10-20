@@ -11,7 +11,7 @@
 6. Breakcorist00 - When The Darkness Hits You (original tracklist)
 7. 100 Gecs - 1000 Gecs And The Tree Of Clues
 8. Cake Pop -  Cake Pop 2
-9. マクロスMacross 82-99 - Sailorwave
+9. マクロスMacross 82-99 - Sailorwave - October 20th 2021
 10. Candy Claws - Two Airships / Exploder Falls
 11. 100 Gecs - 100 Gecs
 12. Breakcorist00 - Error Code - October 21st 2021
