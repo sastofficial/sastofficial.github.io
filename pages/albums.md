@@ -213,6 +213,7 @@
 208. Porter Robinson - Worlds - August 15th 2024
 209. Kendrick Lamar - Live @ Austik City Limits (Bootleg) - August 26th 2024
 210. JID - The Forever Story (Extended Version) - September 6th 2024
+211. SEXCORP., Astrophysics - SEXO, VIOLÊNCIA, RIO & SÃO PAULO - October 21st 2024
 
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
