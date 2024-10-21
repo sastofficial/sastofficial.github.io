@@ -12,7 +12,7 @@
 7. 100 Gecs - 1000 Gecs And The Tree Of Clues
 8. Cake Pop -  Cake Pop 2
 9. マクロスMacross 82-99 - Sailorwave - October 20th 2021
-10. Candy Claws - Two Airships / Exploder Falls
+10. Candy Claws - Two Airships / Exploder Falls - October 21st 2021
 11. 100 Gecs - 100 Gecs
 12. Breakcorist00 - Error Code - October 21st 2021
 13. Bye2 - 霊体ミミズ (GHOST_WORM) - October 22nd 2021
