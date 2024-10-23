@@ -16,9 +16,9 @@
 11. 100 Gecs - 100 Gecs - October 21st 2021
 12. Breakcorist00 - Error Code - October 21st 2021
 13. Bye2 - 霊体ミミズ (GHOST_WORM) - October 22nd 2021
-14. Justice - †
-15. chris††† - Deep Dark Trench
-16. Toby Fox - Deltarune Chapter 2 OST
+14. Justice - † - October 22nd 2021
+15. chris††† - Deep Dark Trench - October 23rd 2021
+16. Toby Fox - Deltarune Chapter 2 OST - October 23rd 2021
 17. Casino Master - ☆★☆ ボーナススピン幸運 ！！！
 18. Breakcorist00 - Exper - January 31st 2022
 19. Breakcorist00 - Sympathy - March 18th 2022
