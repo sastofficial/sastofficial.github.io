@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 214
+### Total Albums/EP's: 216
 
 
 
@@ -182,7 +182,7 @@
 177. juno - teeth - June 24th 2024
 178. underscores - Wallsocket (Director's cut) - June 28th 2024
 179. juno - last year alive - July 2nd 2024
-180. Charli XCX - brat and it’s the same but there’s three more songs so it’s not - July 2nd 2024
+180. Charli XCX - Brat and it’s the same but there’s three more songs so it’s not - July 2nd 2024
 181. Kendrick Lamar - To Pimp a Butterfly - July 2nd 2024
 182. Kendrick Lamar - untitled unmastered. - July 5th 2024
 183. Kendrick Lamar - good kid, m.A.A.d city (Deluxe) - July 5th 2024
@@ -214,6 +214,8 @@
 209. Kendrick Lamar - Live @ Austik City Limits (Bootleg) - August 26th 2024
 210. JID - The Forever Story (Extended Version) - September 6th 2024
 211. SEXCORP., Astrophysics - SEXO, VIOLÊNCIA, RIO & SÃO PAULO - October 21st 2024
+212. Tyler, the Creator - Chromakopia - October 30th 2024
+213. Charli XCX - Brat and it’s completely different but also still brat - October 30th 2024
 
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
