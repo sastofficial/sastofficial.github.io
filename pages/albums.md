@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 219
+### Total Albums/EP's: 221
 
 
 
@@ -219,6 +219,8 @@
 214. Food House - Food House - November 4th 2024
 215. Frost Children - Speed Run - November 4th 2024
 216. Frost Children, HARU NEMURI - SOUL KISS - November 5th 2024
+217. femtanyl - REACTOR - November 17th 2024
+218. The Caretaker - Everywhere at the end of time (Stage 1) - November 17th 2024
 
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
