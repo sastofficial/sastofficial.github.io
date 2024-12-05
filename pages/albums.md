@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 226
+### Total Albums/EP's: 227
 
 
 
@@ -226,6 +226,7 @@
 221. Rob Feather - Proof of Concept - November 20th 2024
 222. Kendrick Lamar - GNX - November 22nd 2024
 223. 2hollis - 2 - November 26th 2024
+224. Venturing - Arizona EP - December 5th 2024
 
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
