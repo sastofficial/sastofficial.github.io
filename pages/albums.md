@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 229
+### Total Albums/EP's: 230
 
 
 
@@ -229,6 +229,7 @@
 224. Venturing - Arizona EP - December 5th 2024
 225. Burial - Untrue - December 13th 2024
 226. Portishead - Dummy - December 15th 2024
+227. Magdalena Bay - Imaginal Disk - December 15th 2024
 
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
