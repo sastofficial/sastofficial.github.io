@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 232
+### Total Albums/EP's: 233
 
 
 
@@ -232,6 +232,7 @@
 227. Magdalena Bay - Imaginal Disk - December 15th 2024
 228. SOPHIE - SOPHIE - December 19th 2024
 229. The Caretaker - Everywhere at the end of time (Stage 4) - December 20th 2024
+230. Geordie Greep - The New Sound - December 29th 2024
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
