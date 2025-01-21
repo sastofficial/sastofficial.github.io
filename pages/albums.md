@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 234
+### Total Albums/EP's: 235
 
 
 
@@ -234,6 +234,7 @@
 229. The Caretaker - Everywhere at the end of time (Stage 4) - December 20th 2024
 230. Geordie Greep - The New Sound - December 29th 2024
 231. Godspeed You! Black Emperor - “NO TITLE AS OF 13 FEBRUARY 2024 28,340 DEAD” - December 29th 2024
+232. JPEGMAFIA - OFFLINE! - January 20th 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
