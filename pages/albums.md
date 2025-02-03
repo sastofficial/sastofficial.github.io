@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 235
+### Total Albums/EP's: 236
 
 
 
@@ -235,6 +235,7 @@
 230. Geordie Greep - The New Sound - December 29th 2024
 231. Godspeed You! Black Emperor - “NO TITLE AS OF 13 FEBRUARY 2024 28,340 DEAD” - December 29th 2024
 232. JPEGMAFIA - OFFLINE! - January 20th 2025
+233. JPEGMAFIA - I LAY DOWN MY LIFE FOR YOU (DIRECTORS CUT) - February 3rd 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
