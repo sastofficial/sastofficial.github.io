@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 237
+### Total Albums/EP's: 238
 
 
 
@@ -237,6 +237,7 @@
 232. JPEGMAFIA - OFFLINE! - January 20th 2025
 233. JPEGMAFIA - I LAY DOWN MY LIFE FOR YOU (DIRECTORS CUT) - February 3rd 2025
 234. The Caretaker - Everywhere at the end of time (Stage 5) - February 6th 2025
+235. venturing - Ghostholding - February 14th 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
