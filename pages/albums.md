@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 242
+### Total Albums/EP's: 243
 
 
 
@@ -242,6 +242,7 @@
 237. Mustard - 2025 Super Bowl LIX Megamix (DJ Mix) - February 23rd 2025
 238. Purble Place - purblepop - February 23rd 2025
 239. food house - two house - February 28th 2025
+240. Twenty One Pilots - Twenty One Pilots - March 3rd 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
