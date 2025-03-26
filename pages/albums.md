@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 244
+### Total Albums/EP's: 245
 
 
 
@@ -244,6 +244,9 @@
 239. food house - two house - February 28th 2025
 240. Twenty One Pilots - Twenty One Pilots - March 3rd 2025
 241. Twenty One Pilots - Vessel - March 6th 2025
+242. The Weeknd - Hurry Up Tomorrow - March 26th 2025
+243. three - talk1 - March 26th 2025
+244. The Caretaker - Everywhere at the end of time (Stage 6) - March 26th 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
