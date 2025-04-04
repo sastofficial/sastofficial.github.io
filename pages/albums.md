@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 248
+### Total Albums/EP's: 250
 
 
 
@@ -248,6 +248,8 @@
 243. three - talk1 - March 26th 2025
 244. The Caretaker - Everywhere at the end of time (Stage 6) - March 26th 2025
 245. Skrillex - F*CK U SKRILLEX YOU THINK UR ANDY WARHOL BUT UR NOT!! <3 - April 3rd 2025
+246. 2hollis - star - April 4th 2025
+247. Jane Remover - Revengeseekerz - April 4th 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
