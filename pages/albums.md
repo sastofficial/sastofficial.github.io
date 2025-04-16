@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 255
+### Total Albums/EP's: 256
 
 
 
@@ -255,6 +255,7 @@
 250. C418 - Wanderstop FM - April 13th 2025
 251. Gabby Start - Stem - April 13th 2025
 252. Kendrick Lamar - Overly Dedicated - April 13th 2025
+253. Skrillex - Scary Monsters and Nice Sprites (Deluxe Tour Edition) - April 15th 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
