@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 256
+### Total Albums/EP's: 271
 
 
 
@@ -256,6 +256,21 @@
 251. Gabby Start - Stem - April 13th 2025
 252. Kendrick Lamar - Overly Dedicated - April 13th 2025
 253. Skrillex - Scary Monsters and Nice Sprites (Deluxe Tour Edition) - April 15th 2025
+254. Skrillex - Bangarang EP - April 20th 2025
+255. Skrillex - More Monsters and Sprites EP - April 20th 2025
+256. Skrillex - Recess  - April 20th 2025
+257. Skrillex - Quest for Fire - April 20th 2025
+258. Marcioz - Mulato Tragidy - April 20th 2025
+259. Magdalena Bay - Mercurial World - April 20th 2025
+260. kmoe - flutter - April 20th 2025
+261. Jane Remover - Teen Week - April 20th 2025
+262. Jane Remover - UNWIRED VOL. 5 - AFTER TEEN WEEK - April 20th 2025
+263. Camellia - PLANET / / SHAPER - April 20th 2025
+264. Charli XCX - how i'm feeling now - April 20th 2025
+265. Charli XCX - Number 1 Angel - April 20th 2025
+266. Eliminate - Get Off The Internet - April 20th 2025
+267. Eliminate - 404: Get Off The Internet [Redux] - April 20th 2025
+268. Charli XCX - XCX World (BloomForYou Tracklist) - April 21st 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
