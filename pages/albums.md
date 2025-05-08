@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 271
+### Total Albums/EP's: 272
 
 
 
@@ -271,6 +271,7 @@
 266. Eliminate - Get Off The Internet - April 20th 2025
 267. Eliminate - 404: Get Off The Internet [Redux] - April 20th 2025
 268. Charli XCX - XCX World (BloomForYou Tracklist) - April 21st 2025
+269. Flume & JPEGMAFIA - We Live In A Society - May 8th 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
