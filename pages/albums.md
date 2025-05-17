@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 273
+### Total Albums/EP's: 277
 
 
 
@@ -273,6 +273,10 @@
 268. Charli XCX - XCX World (BloomForYou Tracklist) - April 21st 2025
 269. Flume & JPEGMAFIA - We Live In A Society - May 8th 2025
 270. xaev - TO-THE-CORE_153BPM - May 15th 2025
+271. Jersey - Over & Over - May 16th 2025
+272. Lucy Bedroque - Unmusique - May 17th 2025
+273. Skrillex - Don’t Get Too Close - May 17th 2025
+274. Jack Ü - Skrillex and Diplo Present Jack Ü - May 17th 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
