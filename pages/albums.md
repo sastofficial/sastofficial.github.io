@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 277
+### Total Albums/EP's: 285
 
 
 
@@ -277,6 +277,14 @@
 272. Lucy Bedroque - Unmusique - May 17th 2025
 273. Skrillex - Don’t Get Too Close - May 17th 2025
 274. Jack Ü - Skrillex and Diplo Present Jack Ü - May 17th 2025
+275. Magdalena Bay - mini mix vol. 1 - May 21st 2025
+276. Magdalena Bay - A Little Rhythm and a Wicked Feeling - May 21st 2025
+277. Lil Yachty - Let’s Start Here. - May 27th 2025
+278. Magdalena Bay - mini mix vol. 2 - May 30th 2025
+279. Magdalena Bay - mini mix vol. 3 - May 30th 2025
+280. kmoe - K1 - June 17th 2025
+281. We Used to Cut the Grass - We Used to Cut the Grass #1 - June 17th 2025
+282. Danny Brown - Atrocity Exhibition - June 17th 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
