@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 285
+### Total Albums/EP's: 286
 
 
 
@@ -285,6 +285,7 @@
 280. kmoe - K1 - June 17th 2025
 281. We Used to Cut the Grass - We Used to Cut the Grass #1 - June 17th 2025
 282. Danny Brown - Atrocity Exhibition - June 17th 2025
+283. Pitbull - Greatest Hits - June 26th 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
