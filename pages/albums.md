@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 288
+### Total Albums/EP's: 289
 
 
 
@@ -288,6 +288,7 @@
 283. Pitbull - Greatest Hits - June 26th 2025
 284. sonny moore x sonic fanfic - SELECTED AMBIENT ZERKS - June 28th 2025
 285. Toby Fox - DELTARUNE Chapters 3+4 (Original Game Soundtrack)
+286. King Gizzard & The Lizard Wizard - Nonagon Infinity - July 3rd 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
