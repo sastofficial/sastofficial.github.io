@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 289
+### Total Albums/EP's: 296
 
 
 
@@ -289,6 +289,13 @@
 284. sonny moore x sonic fanfic - SELECTED AMBIENT ZERKS - June 28th 2025
 285. Toby Fox - DELTARUNE Chapters 3+4 (Original Game Soundtrack)
 286. King Gizzard & The Lizard Wizard - Nonagon Infinity - July 3rd 2025
+287. Daft Punk - 1997-06-14 - Live @ Hultsfred Festival, Hultsfred, Sweden (Bootleg) - July 9th 2025
+288. Daft Punk - 1997-08-09 - Live @ Borealis Festival, Montpellier, France (Bootleg) - July 10th 2025
+289. 2hollis - THE STAR TOUR @ Coachella 2025 (Weekend 1) (Bootleg) - July 10th 2025
+290. Vylet Pony - Love & Ponystep - July 14th 2025
+291. Madeon - Adventure (Deluxe) - July 16th 2025
+292. Clipse - Let God Sort Em Out - July 16th 2025
+293. Tyler, The Creator - DON'T TAP THE GLASS - July 21st 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
