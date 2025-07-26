@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 296
+### Total Albums/EP's: 297
 
 
 
@@ -296,6 +296,7 @@
 291. Madeon - Adventure (Deluxe) - July 16th 2025
 292. Clipse - Let God Sort Em Out - July 16th 2025
 293. Tyler, The Creator - DON'T TAP THE GLASS - July 21st 2025
+294. Quadeca - Vanisher, Horizon Scraper - July 25th 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
