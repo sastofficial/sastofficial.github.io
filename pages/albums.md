@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 297
+### Total Albums/EP's: 303
 
 
 
@@ -297,8 +297,15 @@
 292. Clipse - Let God Sort Em Out - July 16th 2025
 293. Tyler, The Creator - DON'T TAP THE GLASS - July 21st 2025
 294. Quadeca - Vanisher, Horizon Scraper - July 25th 2025
+295. We Used to Cut the Grass - We Used to Cut the Grass #2 - July 29th 2025
+296. Frost Children - Elixir Rejection - July 31st 2025
+297. OXXY - SELECTED TRAXX 01 - August 1st 2025
+298. Ninajirachi - I Love My Computer - August 8th 2025
+299. Tyler, The Creator - CALL ME IF YOU GET LOST: The Estate Sale - August 8th 2025
+300. Tyler, The Creator - CHERRY BOMB - August 8th 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
 I also remember listening to SOPHIE - PRODUCT but i dont know if i ever wrote down when i listened to that,
 (update: it was on november 9th 2021, ill put it in the list when i know the other dates)
+
