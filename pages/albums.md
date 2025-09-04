@@ -6,7 +6,7 @@
 1. Daft Punk - Alive 1997 - March 30th 2021
 2. BoyWithUke - Fever Dreams - June 4th 2021
 3. Breakcorist00 - It's Gonna Be Over Soon
-4. Tyler, The Creator - Igor - September 3rd 2021
+4. Tyler, The Creator - Igor - September 4th 2021
 5. 100 Gecs - 1000 Gecs
 6. Breakcorist00 - When The Darkness Hits You (original tracklist)
 7. 100 Gecs - 1000 Gecs And The Tree Of Clues
@@ -308,4 +308,5 @@ I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
 I also remember listening to SOPHIE - PRODUCT but i dont know if i ever wrote down when i listened to that,
 (update: it was on november 9th 2021, ill put it in the list when i know the other dates)
+
 
