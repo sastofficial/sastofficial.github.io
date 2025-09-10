@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 303
+### Total Albums/EP's: 304
 
 
 
@@ -303,10 +303,12 @@
 298. Ninajirachi - I Love My Computer - August 8th 2025
 299. Tyler, The Creator - CALL ME IF YOU GET LOST: The Estate Sale - August 8th 2025
 300. Tyler, The Creator - CHERRY BOMB - August 8th 2025
+301. Jane Remover - INDIE ROCK - September 10th 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
 I also remember listening to SOPHIE - PRODUCT but i dont know if i ever wrote down when i listened to that,
 (update: it was on november 9th 2021, ill put it in the list when i know the other dates)
+
 
 
