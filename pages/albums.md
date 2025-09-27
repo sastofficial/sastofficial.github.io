@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 306
+### Total Albums/EP's: 307
 
 
 
@@ -306,11 +306,13 @@
 301. Jane Remover - INDIE ROCK - September 10th 2025
 302. Frost Children - Sister - September 12th 2025
 303. Maruja - Pain to Power - September 21st 2025
+304. Twenty One Pilots - Breach - September 26th 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
 I also remember listening to SOPHIE - PRODUCT but i dont know if i ever wrote down when i listened to that,
 (update: it was on november 9th 2021, ill put it in the list when i know the other dates)
+
 
 
 
