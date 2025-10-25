@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 312
+### Total Albums/EP's: 317
 
 
 
@@ -312,11 +312,17 @@
 307. Tyler, The Creator - Wolf + Instrumentals - October 5th 2025
 308. Vylet Pony - Monarch of Monsters - October 11th 2025
 309. Vylet Pony - Girls Who Are Wizards - October 12th 2025
+310. Vylet Pony - Carousel (An Examination of the Shadow, Creekflow, and its Life as an Afterthought) - October 24th 2025
+311. Vylet Pony - can opener's notebook: fish whisperer - October 24th 2025
+312. Vylet Pony - CUTIEMARKS (And the Things That Bind Us) - October 25th 2025
+313. Vylet Pony - I'm Creekflow - October 25th 2025
+314. Vylet Pony - I Was The Loner of Paradise Valley - October 25th 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
 I also remember listening to SOPHIE - PRODUCT but i dont know if i ever wrote down when i listened to that,
 (update: it was on november 9th 2021, ill put it in the list when i know the other dates)
+
 
 
 
