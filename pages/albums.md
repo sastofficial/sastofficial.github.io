@@ -87,8 +87,8 @@
 82. breakcorist00 - After Death - June 21st 2023
 83. Vargskelethor - Super Ghostbusters (Deluxe Edition) - June 21st 2023
 84. Justice - Audio, Video, Disco. - June 25th 2023
-85. Justice - Woman - June 25th 2023
-86. Justice - Planisphere - June 25th 2023
+85. Justice - Planisphere - June 25th 2023
+86. Justice - Woman - June 25th 2023
 87. Justice - Access All Arenas - June 27th 2023
 88. Justice - Woman Worldwide - June 27th 2023
 89. Gaspard Auge - Escapades - July 8th 2023
@@ -317,11 +317,17 @@
 312. Vylet Pony - CUTIEMARKS (And the Things That Bind Us) - October 25th 2025
 313. Vylet Pony - I'm Creekflow - October 25th 2025
 314. Vylet Pony - I Was The Loner of Paradise Valley - October 25th 2025
+315. McKinley Dixon - Magic, Alive! - October 27th 2025
+316. Racing Mount Pleasant - Racing Mount Pleasant - October 27th 2025
+317. Geese - Getting Killed - October 27th 2025
+318. McKinley Dixon - Beloved! Paradise! Jazz!? - October 27th 2025
+319. Vylet Pony - Super Pony World: Fairytails - October 27th 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
 I also remember listening to SOPHIE - PRODUCT but i dont know if i ever wrote down when i listened to that,
 (update: it was on november 9th 2021, ill put it in the list when i know the other dates)
+
 
 
 
