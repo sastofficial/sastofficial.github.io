@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 322
+### Total Albums/EP's: 323
 
 
 
@@ -322,11 +322,13 @@
 317. Geese - Getting Killed - October 27th 2025
 318. McKinley Dixon - Beloved! Paradise! Jazz!? - October 27th 2025
 319. Vylet Pony - Super Pony World: Fairytails - October 27th 2025
+320. ASTROPHYSICS - Vanilla Deathwish - October 30th 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
 I also remember listening to SOPHIE - PRODUCT but i dont know if i ever wrote down when i listened to that,
 (update: it was on november 9th 2021, ill put it in the list when i know the other dates)
+
 
 
 
