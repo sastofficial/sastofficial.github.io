@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 324
+### Total Albums/EP's: 334
 
 
 
@@ -200,7 +200,7 @@
 195. Syzy - The weight of the world - July 28th 2024
 196. webcage - peer2peer - July 28th 2024
 197. 2hollis - boy - July 28th 2024
-198. DJ Re:Code - ReVertPunk - July 31st 2024
+198. DJ Re:Code - ReVertPunk! - July 31st 2024
 199. FROMTHEHEART - "things happen, it's okay!" - July 31st 2024
 200. asukagender - asukacore - July 31st 2024
 201. Khris YokiTunes - Before Rabbit Girls - July 31st 2024
@@ -211,7 +211,7 @@
 206. Lena Raine - Celeste B-Sides (Original Game Soundtrack) - August 13th 2024
 207. lanelanelane - Bluefaith - August 14th 2024
 208. Porter Robinson - Worlds - August 15th 2024
-209. Kendrick Lamar - Live @ Austik City Limits (Bootleg) - August 26th 2024
+209. Kendrick Lamar - Live @ Austin City Limits (Bootleg) - August 26th 2024
 210. JID - The Forever Story (Extended Version) - September 6th 2024
 211. SEXCORP., Astrophysics - SEXO, VIOLÊNCIA, RIO & SÃO PAULO - October 21st 2024
 212. Tyler, the Creator - Chromakopia - October 30th 2024
@@ -324,11 +324,22 @@
 319. Vylet Pony - Super Pony World: Fairytails - October 27th 2025
 320. ASTROPHYSICS - Vanilla Deathwish - October 30th 2025
 321. Danny Brown - Stardust - November 7th 2025
+322. ROSALÍA - LUX - November 9th 2025
+323. Skrillex - hit me where it hurts x - November 21st 2025
+324. Tyler, The Creator - Music Inspired by Illumination & Dr. Seuss' The Grinch - November 23rd 2025
+325. Jane Remover - ♡ - December 5th 2025
+326. Space Laces - Vaultage 001 - December 8th 2025
+327. Space Laces - Vaultage 002 - December 8th 2025
+328. Space Laces - Vaultage 003 - December 8th 2025
+329. Space Laces - Vaultage 004 - December 9th 2025
+330. GODLESS - DEMO - December 9th 2025
+331. Space Laces - High Vaultage - December 12th 2025
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
 I also remember listening to SOPHIE - PRODUCT but i dont know if i ever wrote down when i listened to that,
 (update: it was on november 9th 2021, ill put it in the list when i know the other dates)
+
 
 
 
