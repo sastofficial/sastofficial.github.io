@@ -338,7 +338,7 @@
 333. Vylet Pony - No Matter What (10 Year Anniversary Collection) - January 7th 2026
 334. Vylet Pony - No Matter What 2024 EP - January 7th 2026
 335. Vylet Pony - No Matter What (2025) - January 7th 2026
-336. Vylet Pony - Super Pony World (Zraos Simulation) - January 8th 2026
+336. Vylet Pony - Super Pony World (Zräos Simulation) - January 8th 2026
 337. Skrillex - Kora - January 15th 2026
 338. Ty Dolla $ign - TYCOON - January 16th 2026
 339. A$AP Rocky - Don't Be Dumb - January 16th 2026
@@ -347,6 +347,7 @@ I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
 I also remember listening to SOPHIE - PRODUCT but i dont know if i ever wrote down when i listened to that,
 (update: it was on november 9th 2021, ill put it in the list when i know the other dates)
+
 
 
 
