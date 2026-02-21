@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 342
+### Total Albums/EP's: 346
 
 
 
@@ -342,11 +342,16 @@
 337. Skrillex - Kora - January 15th 2026
 338. Ty Dolla $ign - TYCOON - January 16th 2026
 339. A$AP Rocky - Don't Be Dumb - January 16th 2026
+340. Bad Bunny - DeBÍ TiRAR MáS FOToS - February 8th 2026
+341. femtanyl - MAN BITES DOG - February 14th 2026
+342. Charli XCX - Wuthering Heights - February 20th 2026
+343. Baby Keem - Ca$ino - February 20th 2026
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
 I also remember listening to SOPHIE - PRODUCT but i dont know if i ever wrote down when i listened to that,
 (update: it was on november 9th 2021, ill put it in the list when i know the other dates)
+
 
 
 
