@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 346
+### Total Albums/EP's: 349
 
 
 
@@ -346,6 +346,9 @@
 341. femtanyl - MAN BITES DOG - February 14th 2026
 342. Charli XCX - Wuthering Heights - February 20th 2026
 343. Baby Keem - Ca$ino - February 20th 2026
+344. ettternalriot - NIX - March 12th 2026
+345. PinkPantheres - Fancy That - March 20th 2026
+346. Underscores - U - March 21st 2026
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
