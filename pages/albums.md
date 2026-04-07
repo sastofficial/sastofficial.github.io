@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 349
+### Total Albums/EP's: 354
 
 
 
@@ -349,6 +349,11 @@
 344. ettternalriot - NIX - March 12th 2026
 345. PinkPantheres - Fancy That - March 20th 2026
 346. Underscores - U - March 21st 2026
+347. Ninajirachi - girl EDM (Disc 1) - March 21st 2026
+348. PinkPantheres - Fancy Some More? - April 4th 2026
+349. CASIOPEA - CASIOPEA - April 4th 2026
+350. CASIOPEA - SUPER FLIGHT - April 4th 2026
+351. Fred again.. & Thomas Bangalter - Alexandra Palace, London, Feb 27, 2026 (DJ Mix) - April 6th 2026
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
