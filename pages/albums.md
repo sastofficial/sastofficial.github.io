@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 354
+### Total Albums/EP's: 361
 
 
 
@@ -354,6 +354,13 @@
 349. CASIOPEA - CASIOPEA - April 4th 2026
 350. CASIOPEA - SUPER FLIGHT - April 4th 2026
 351. Fred again.. & Thomas Bangalter - Alexandra Palace, London, Feb 27, 2026 (DJ Mix) - April 6th 2026
+352. Skrillex - Boiler Room: Skrillex in Shanghai, Sep 29, 2016 (DJ Mix) - April 10th 2026
+353. Justice - 2007 Xmas Mix (DJ Mix) - April 10th 2026
+354. Porter Robinson - Secret Sky 2021 (Live) - April 12th 2026
+355. CASIOPEA - MINT JAMS - April 12th 2026
+356. Porter Robinson - Second Sky 2021 (Live) - April 19th 2026
+357. Porter Robinson - Secret Sky 2020 (DJ Mix) - April 19th 2026
+358. Vylet Pony - Gonarch's Lair - April 20th 2026
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
