@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 361
+### Total Albums/EP's: 366
 
 
 
@@ -361,6 +361,11 @@
 356. Porter Robinson - Second Sky 2021 (Live) - April 19th 2026
 357. Porter Robinson - Secret Sky 2020 (DJ Mix) - April 19th 2026
 358. Vylet Pony - Gonarch's Lair - April 20th 2026
+359. Tyler, The Creator - Apple Music Presents: Tyler, The Creator - May 5th 2026
+360. slayr - Half Blood - May 9th 2026
+361. slayr - Half Blood (BloodLuxe) - May 9th 2026
+362. Lamb of God - Wrath (Deluxe Edition) - May 9th 2026
+363. glaive & kurtains - God Save The Three - May 9th 2026
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
