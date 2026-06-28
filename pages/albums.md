@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 366
+### Total Albums/EP's: 377
 
 
 
@@ -366,6 +366,17 @@
 361. slayr - Half Blood (BloodLuxe) - May 9th 2026
 362. Lamb of God - Wrath (Deluxe Edition) - May 9th 2026
 363. glaive & kurtains - God Save The Three - May 9th 2026
+364. leroy - status update music - May 15th 2026
+365. JPEGMAFIA - EXPERIMENTAL RAP - May 22nd 2026
+366. Skrillex - SOMA - June 6th 2026
+367. Slayyyter - WOR$T GIRL IN AMERICA - June 17th 2026
+368. Tiffany Day - HALO - June 17th 2026
+369. slayr - HeavenTunes - June 18th 2026
+370. Cochise - TRENCH TOWN - June 19th 2026
+371. Kim Petras - Detour - June 19th 2026
+372. prettifun - FunHouse - June 23rd 2026
+373. Madeon - Victory - June 27th 2026
+374. Quadeca - Vanisher, Horizon Scraper (The Extended Cut) - June 28th 2026
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
