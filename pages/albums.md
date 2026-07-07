@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 377
+### Total Albums/EP's: 387
 
 
 
@@ -377,6 +377,16 @@
 372. prettifun - FunHouse - June 23rd 2026
 373. Madeon - Victory - June 27th 2026
 374. Quadeca - Vanisher, Horizon Scraper (The Extended Cut) - June 28th 2026
+375. crshed - Unique2u - June 28th 2026
+376. waera - A NEW ERA - June 28th 2026
+377. Toby Fox & Trevor Alan Gomes - DELTARUNE Piano Collections, Vol. 1 - July 1st 2026
+378. Ken Carson - xperiment - July 3rd 2026
+379. acloudyskye - In a while this will all be gone - July 4th 2026
+380. acloudyskye - This Won't Be The Last Time - July 4th 2026
+381. vax - Blue Dawn - July 5th 2026
+382. slayr - Gaia 2 - July 5th 2026
+383. Twenty One Pilots - Scaled And Icy - July 7th 2026
+384. Toby Fox - DELTARUNE Chapter 5 (Original Game Soundtrack) - July 7th 2026
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
