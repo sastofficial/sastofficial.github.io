@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 387
+### Total Albums/EP's: 425
 
 
 
@@ -387,6 +387,44 @@
 382. slayr - Gaia 2 - July 5th 2026
 383. Twenty One Pilots - Scaled And Icy - July 7th 2026
 384. Toby Fox - DELTARUNE Chapter 5 (Original Game Soundtrack) - July 7th 2026
+385. slayr - AVANT NOVA - July 10th 2026
+386. Twenty One Pilots - Scaled And Icy (Livestream Version) - July 10th 2026
+387. Twenty One Pilots - Blurryface - July 14th 2026
+388. Swans - The Glowing Man - July 17th 2026
+389. Twenty One Pilots - Trench - July 22nd 2026
+390. Twenty One Pilots - MTV Unplugged (Live) - July 22nd 2026
+391. Swans - To Be Kind - July 24th 2026
+392. Charli xcx - Music, Fashion, Film - August 1st 2026
+393. Frost Children - Tweaker Poem - August 1st 2026
+394. Twenty One Pilots - Clancy - August 3rd 2026
+395. Twenty One Pilots - More Than We Ever Imagined (Live in Mexico City) - August 7th 2026
+396. Jamiroquai - Emergency On Planet Earth (Remastered) - August 9th 2026
+397. Lena Raine - Celeste: Farewell (Original Soundtrack) - August 12th 2026
+398. Celeste Strawberry Jam - strawberry jams vol. 1 - August 12th 2026
+399. Egobreak - Snow Ballet - August 13th 2026
+400. Lena Raine & Trevoer Alan Gomes - Celeste Piano Collections - August 13th 2026
+401. acloudyskye - There Must Be Something Here - August 13th 2026
+402. Joey Valence & Brae - HYPERYOUTH - August 13th 2026
+403. Joey Valence & Brae - NO HANDS (Deluxe Edition) - August 14th 2026
+404. Vylet Pony - Homeward - August 15th 2026
+405. Jamiroquai - The Return of the Space Cowboy (Remastered) - August 15th 2026
+406. black midi - Schlagenheim - August 20th 2026
+407. black midi - Cavalcade - August 21st 2026
+408. death's dynamic shroud - Faith in Persona - September 4th 2026
+409. glass beach - plastic death - September 4th 2026
+410. glass beach - the first glass beach album - September 6th 2026
+411. Girls' Generation - Run Devil Run - The 2nd Album Repackage - September 6th 2026
+412. black midi - Hellfire - September 13th 2026
+413. vax - B4VXN - September 13th 2026
+414. prettifun - Pretti Loves U 2 - September 13th 2026
+415. Lucy Bedroque - c - September 26th 2026
+416. marshall4 - xoxoXpanded - September 26th 2026
+417. Quadeca - Life 1 - October 11th 2026
+418. Tinashe - Popstar - October 11th 2026
+419. LCD Soundsystem - LCD Soundsystem - October 16th 2026
+420. Stickerbush x Heavensouls - darkskin niggas with lightskin problems (Streaming Version) - October 18th 2026
+421. heavensouls - "cantu" of the sower - October 23rd 2026
+422. LCD Soundsystem - Sound of Silver - October 25th 2026
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
