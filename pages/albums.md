@@ -1,5 +1,5 @@
 # Album's/EP's i have listened to
-### Total Albums/EP's: 425
+### Total Albums/EP's: 437
 
 
 
@@ -425,6 +425,18 @@
 420. Stickerbush x Heavensouls - darkskin niggas with lightskin problems (Streaming Version) - October 18th 2026
 421. heavensouls - "cantu" of the sower - October 23rd 2026
 422. LCD Soundsystem - Sound of Silver - October 25th 2026
+423. heavensouls x stickerbush aka sidepeices - darklight - October 26th 2026
+424. heavensouls - westside trapped - October 26th 2026
+425. brakence - marroW - October 27th 2026
+426. kuru - Backstage hologram - October 28th 2026
+427. ISOxo - HARDCORE DIVA - October 29th 2026
+428. 117★FC - VARIETY 01　~1ˢᵗ 117★FC COMPILATION ALBUM~ - October 30th 2026
+429. shteppi & waera - grl. - October 30th 2026
+430. 9lives - 9 - October 30th 2026
+431. dingle999 - whatever floats your boat - October 30th 2026
+432. nottanishi - 21st century boy EP - October 30th 2026
+433. dingle999 - Young thug respect moments 1-8 - October 30th 2026
+434. dingle999 - not funny dude. - October 30th 2026
 
 I have also lisented to Breakcorist00 - Liminal Room but Discogs deleted it from their database so idk when i listened to it.
 I have also listened to Daft Punk - Discovery by watching Interstella 5555.
